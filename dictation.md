@@ -854,7 +854,7 @@ live on 继续存在
 canal 渠，管道
 
 107
-Open up your wallet, you expect to find one, tens twenties and maybe a hundle. THe last thing that you ever expect is a Tom, also known as a 2 dollar bill. Here is why. In 1862, the federal Government has just print its first paper money, the first and the only denomination for the 1 dollar and 2 dollar bills and keep in mind that people were making 15 dollars a month. To pay using a 2 dollar bill is the status only the wealthy people in the American that afford. And a lot of times, they used it for under the  table transactions like // bribe and prostitutes and gambling. The 
+Open up your wallet, you expect to find one, tens twenties and maybe a hundle. THe last thing that you ever expect is a Tom, also known as a 2 dollar bill. Here is why. In 1862, the federal Government has just print its first paper money, the first and the only denomination for the 1 dollar and 2 dollar bills and keep in mind that people were making 15 dollars a month. To pay using a 2 dollar bill is the status only the wealthy people in the American that afford. And a lot of times, they used it for under the  table transactions like // bribe and prostitutes and gambling. The Tom ultimately got a bad // and was deemed as necessary. In 1966, government took a ten year / and stop priting 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU0OTk5OTkxNywtMTAyMTI3NDk1M119
+eyJoaXN0b3J5IjpbMTA3MDU4NDc2MywtMTAyMTI3NDk1M119
 -->
