@@ -860,8 +860,11 @@ hiatus 间隔
 hundo 猎狗， 横排
 has a bad rap 口碑差
 deem 认为
+bicentennial 二百周年
+classy 豪华的
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTMxMzMyNjI5OCwtMTAyMTI3NDk1M119
+eyJoaXN0b3J5IjpbLTI5ODcwMzM4NywtMzEzMzI2Mjk4LC0xMD
+IxMjc0OTUzXX0=
 -->
