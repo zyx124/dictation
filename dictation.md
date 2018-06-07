@@ -854,7 +854,7 @@ live on 继续存在
 canal 渠，管道
 
 107
-Open up your wallet, you expect to find one, tens twenties and maybe a hundle.
+Open up your wallet, you expect to find one, tens twenties and maybe a hundle. THe last thing that you ever expect is a Tom, also known as a 2 dollar bill. Here is why.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTIwNTI3ODAwXX0=
+eyJoaXN0b3J5IjpbLTEwMjEyNzQ5NTNdfQ==
 -->
