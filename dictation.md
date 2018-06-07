@@ -853,7 +853,8 @@ out of this world 人世所无
 live on 继续存在
 canal 渠，管道
 
-
+107
+Open up your wallet, you expect to find one, tens twenties and maybe a hundle.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTc0MzIxMDc4OF19
+eyJoaXN0b3J5IjpbOTIwNTI3ODAwXX0=
 -->
