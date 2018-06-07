@@ -858,8 +858,10 @@ Open up your wallet, you expect to find ones, tens twenties and maybe a hundo. T
 
 hiatus 间隔
 hundo 猎狗， 横排
-has a bad rap 
+has a bad rap 口碑差
+deem 认为
+
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTU2MjE5MTU1LC0xMDIxMjc0OTUzXX0=
+eyJoaXN0b3J5IjpbLTMxMzMyNjI5OCwtMTAyMTI3NDk1M119
 -->
