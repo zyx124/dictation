@@ -864,10 +864,10 @@ bicentennial 二百周年
 classy 豪华的
 
 108
-The group of 7 summit is underway in Canada, the meeting comes amid attention over president DT trade policies and his call for Russia to be allowed back into the elite group of nations. Celebrity chef of and world traveler Anthony Bourdain was found dead in his hotel room on Friday in France while working on his CNN series on /culinary/ traditionals. A prosecutor said he apparently hanged himself in the /luxury/ hotel. The new /shockwaves/  throughout the world. /Israeli / troops fired live round and tear gas near the Gaza boarder fence killed at least 4 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flaming /kites/ in the /latest in a/ series of mass protest to call attention of a decade of blood of Ga by Israel and Egypt.
-A /Mexican/ restaurant in Singapore is giving a chance for customers to participate in a weekend raffle for the opportunity to hit the // to characters of pDT  and NK leader Kim Jong On are statued to hold a meeting in Singapore on June 12th.
+The group of 7 summit is underway in Canada, the meeting comes amid attention over president DT trade policies and his call for Russia to be allowed back into the elite group of nations. Celebrity chef of and world traveler Anthony Bourdain was found dead in his hotel room on Friday in France while working on his CNN series on /culinary/ traditionals. A prosecutor said he apparently hanged himself in the /luxury/ hotel. The new /shockwaves/  throughout the world. /Israeli / troops fired live round and tear gas near the Gaza boarder fence killed at least 4 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flaming /kites/ in the /latest in a/ series of mass protest to call attention of a decade-old of blockade of Gaza by Israel and Egypt.
+A /Mexican/ restaurant in Singapore is giving a chance for customers to participate in a weekend raffle for the opportunity to hit the /pinatas/ to characters of pDT  and NK leader Kim Jong On are statued to hold a meeting in Singapore on June 12th.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5Mjg5ODQ1NjUsLTcxNDAyNDk1MSwtMT
-g3NDIyNTE1MCwtMjk4NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEy
-NzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbLTEzMTk2NTc5MDMsLTE5Mjg5ODQ1NjUsLT
+cxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4NzAzMzg3LC0zMTMz
+MjYyOTgsLTEwMjEyNzQ5NTNdfQ==
 -->
