@@ -864,9 +864,9 @@ bicentennial 二百周年
 classy 豪华的
 
 108
-
+The group of 7 summit in Canada, the meetting comes 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTM1NTMxODQ0NiwtMjk4NzAzMzg3LC0zMT
-MzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbLTExOTEzOTA1NzUsLTI5ODcwMzM4NywtMz
+EzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
 -->
