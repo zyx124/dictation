@@ -864,9 +864,9 @@ bicentennial 二百周年
 classy 豪华的
 
 108
-The group of 7 summit in Canada, the meeting comes attention over president DT trade policies and code with Russia to allowed back into elite group of nations. The  of and world
+The group of 7 summit in Canada, the meeting comes attention over president DT trade policies and code with Russia to allowed back into elite group of nations. The  of and world traveler Anthony was found dead in his hotel room Friday in France while work on CIA
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMTcyNzE0MDE1NiwtMjk4NzAzMzg3LC0zMT
+eyJoaXN0b3J5IjpbMjE0MzUzNzcxMCwtMjk4NzAzMzg3LC0zMT
 MzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
 -->
