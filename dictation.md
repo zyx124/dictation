@@ -864,9 +864,9 @@ bicentennial 二百周年
 classy 豪华的
 
 108
-The group of 7 summit in Canada, the meeting comes attention over president DT trade policies and code with Russia to allowed back into elite group of nations. The  of and world traveler Anthony was found dead in his hotel room Friday in France while working on his CIA series on // traditionals. A proscecuter said he apparently hanged himself in the // hotel in the new // way throughout the world. // troops fight around and tear gas in the Ga boarder fance killed at least 400 demonstrators, more than 600 wounded. Protesters burned tires and throw
+The group of 7 summit in Canada, the meeting comes attention over president DT trade policies and code with Russia to allowed back into elite group of nations. The  of and world traveler Anthony was found dead in his hotel room Friday in France while working on his CIA series on // traditionals. A proscecuter said he apparently hanged himself in the // hotel in the new // way throughout the world. // troops fight around and tear gas in the Ga boarder fance killed at least 400 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flamed // in the // of series of mass protest to 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTc5MTE1NzI0MywtMjk4NzAzMzg3LC0zMT
-MzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbLTIwMzI1MzMyMjQsLTI5ODcwMzM4NywtMz
+EzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
 -->
