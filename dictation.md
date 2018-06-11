@@ -864,9 +864,9 @@ bicentennial 二百周年
 classy 豪华的
 
 108
-The group of 7 summit is underway in Canada, the meeting comes amid attention over president DT trade policies and his call for Russia to be allowed back into the elite group of nations. Celebrity chef of and world traveler Anthony was found dead in his hotel room on Friday in France while working on his CIA series on // traditionals. A proscecuter said he apparently hanged himself in the /luxury/ hotel in the new // way throughout the world. // troops fight around and tear gas near the Ga boarder fance killed at least 400 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flamed // in the // of series of mass protest to call attention of a decade of blood of Ga by Israel and Egypt.
+The group of 7 summit is underway in Canada, the meeting comes amid attention over president DT trade policies and his call for Russia to be allowed back into the elite group of nations. Celebrity chef of and world traveler Anthony Bourdain was found dead in his hotel room on Friday in France while working on his CNN series on // traditionals. A proscecuter said he apparently hanged himself in the /luxury/ hotel in the new // way throughout the world. // troops fight around and tear gas near the Ga boarder fance killed at least 400 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flamed // in the // of series of mass protest to call attention of a decade of blood of Ga by Israel and Egypt.
 A /Mexican/ restaurant in Singapore is giving a chance for customers to participate in a weekend raffle for the opportunity to hit the // to characters of pDT  and NK leader Kim Jong On are statued to hold a meeting in Singapore on June 12th.
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE5NDA2NTEyMjcsLTE4NzQyMjUxNTAsLT
-I5ODcwMzM4NywtMzEzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
+eyJoaXN0b3J5IjpbMTg2NDI1NzEyMSwtMTg3NDIyNTE1MCwtMj
+k4NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
 -->
