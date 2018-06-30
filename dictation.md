@@ -1,4 +1,5 @@
 
+
 # dictation
 
 标签（空格分隔）： English
@@ -866,8 +867,288 @@ classy 豪华的
 108
 The group of 7 summit is underway in Canada, the meeting comes amid attention over president DT trade policies and his call for Russia to be allowed back into the elite group of nations. Celebrity chef of and world traveler Anthony Bourdain was found dead in his hotel room on Friday in France while working on his CNN series on /culinary/ traditionals. A prosecutor said he apparently hanged himself in the /luxury/ hotel. The new /shockwaves/  throughout the world. /Israeli / troops fired live round and tear gas near the Gaza boarder fence killed at least 4 demonstrators, more than 600 wounded. Protesters burned tires and throw stones and flew flaming /kites/ in the /latest in a/ series of mass protest to call attention of a decade-old of blockade of Gaza by Israel and Egypt.
 A /Mexican/ restaurant in Singapore is giving a chance for customers to participate in a weekend raffle for the opportunity to hit the /pinatas/ to characters of pDT  and NK leader Kim Jong On are statued to hold a meeting in Singapore on June 12th.
+
+109 
+If you are afraid of coming down and going and swimming in the ocean because of sharks you should be terrified to make a piece of toast. 400 people died last year from defective toasters where there are less than 10 did from sharks. This is the first large shark expedition like this in the western gulf. We will be tagging hammerheaded sharks, tiger sharks and Mako sharks, trying to understand how they /are leveraging/ the gulf and their /birthing,/ mating and full migratory patterns. We will be getting up everyday just before dawn, the fishing team will be going out getting all of our lines rigged and ready to go. And we will get the ship in position with lift in the water and we are gonna looking to capture, bring the shark back to the lift, lifting them out of the water, once we do that, a whole team of scientist from half dozen institutions will circle around the shark and we are going to conduct 12 reseach projects in about 15 minutes then release the shark to the open sourse the tracking to the world so that everyone can follow it. What we are finding is that these massive sharks have huge huge movements across the ocean and we have one of these sharks Lydia has travelled over 35 000 miles in just 2 years, very very regular for these sharks to be swimming thousands of miles a month, which is why so important to figure out where they go. We are losing 200,000 sharks a day for shark fin soup-- hundred million a year.And people need to understand, an ocean with no shark means the ocean with no fish. They are the lion and balance keeper of the ocean and if they are not the whole food chain collapses. THis is a simple battle, we've gotta solve the puzzles the sharks' lives to make sure they flourish and make a difference for the future.
+
+gulf 海沟
+leverage 影响，杠杆
+rig 装配
+
+110
+At NY's American Museum of Natural History, we are past the Roosevelt Atrium, through the Frick building and tucked away behind the /drawers/ of bones. Dr. Jack Tsengis hard at worked. He is a dog guy. Well I have worked on dog revolution and dog/ fossil/ for about 10 years. Jackson is the man when it /comes/  dog revolution. He says dogs have a /shot at outliving/ living us all. 
+Humans have been evolving for roughly three million years but dogs have been around way longer. And that history goes all the way back 40 million years. It hasn't been easy, they have dealt with warming, cooling and iceage. To determine how dogs /are goint to fare/ as the world changes, you have to start in the past because dogs are evolutionary marvels. The first dogs weren't really dogs as we know them today they were /tree-dwellers/ and really small. They changed to survive: their legs lengthen so that they can run longer distances and they grew a lot. During the ice age the big wolves weight around 140 pounds but it is their teeth that are really the key to their survival. Their teeth are getting stronger to deal with the larger bones and grit /that they make in your mouth/ when they are hunting. What he says is that it is biological that the dogs are eating machines. Think of their teeth as the basic blueprint as they goes back 40 million years and can be adapted to any kind of environmental change. THe teeth in the back crush bone. Those teeth in the middle are for cutting and the front teeth are for puncturing. What is more, dogs' teeth have reinforced surfaces, that means their teeth will stay intack whether they are eating larger bones or chewing /up/ carcasses. It also means dogs do not really need us. Dogs are able to survive even if we are no longer around to feed them because they can eat pretty much anything that comes their way. If we do go and they are left, I am sure that they will adapt whatever environment comes their way.
+
+outliving 比...长寿
+have a shot/crack at 尽力去做
+inact 完好无损的
+
+That is a terrible thing to do with a beer. All that delicious malty goodness gone to waste. But why should tap on top trigger a foam explosion while clink on the side  signals the start/ of a/ drink with friends? It has to do with shake with a beer bottle. When you bonk the beer bottle on top, the hit creates pressure waves travel down through the liquid. These waves bounces off the bottom of the bottle, /head back/ up to the top and then bounce back down again. The changing pressure in the bear rapidly expands and contracts any small bubbles. At a certain point, these bubbles burst under the pressure, creating thousands of new tiny new bubbles. Here where the chain reaction starts. Each of the tiny bubbles has a lot of surface area for its volumn so it is easy for the carbon dioxide to dissolve in the beer to get into the bubble and the bubbles get bigger and lighter as they go which makes them rise towards the top. As they rise, they pass through the new /parts/ of the liquid with lots of /spare/ carbon dioxide. A feedback loop starts, the bigger the bubbles get, the faster they rise and more CO2 absorbed which makes them even get bigger. The processes not unlike a mushroom cloud of a nuclear bomb, the violent result of uncontrolled chain reaction.And depending on one's mood, only slightly less tragic. For scientifican american instant egghead, I am Michael Moyer.
+tragic 悲惨的
+clink 叮当声
+bonk 顶
+
+112
+Humans can experience 10 million colors. It is rather amazing but not to a mantis shrimp. Beautiful, isn't it? This is a mentis shrimp. Mentis shrimp has 16 color receptors in their eyes, the most of any animals on our planet now what does this mean? Think about the world you live in, you're experiencing all this with 3 optical receptors. Because Mshrimp has so many more than us. Their light detecting ability is astronomically better and this can help them spot prey quicker making it an extrodinary hunter. It is only about 4 inches long but can stike a force at 335 pounds. It takes 9 pounds to breaks a nose and 25 to break a small bone and 400 to break through a block of cement. The movement of a M shrimp claw is one of the world's fastest for any animal on earth. They have even been known to break through aquarium of tanks. Remarkable.
+
+metis 螳螂
+astronomically 超过很多的
+aquarium 水族馆
+
+113
+Bill Cosby has dropped his defense team whose aggressive tactic fail to/sway juror/ from convicting his sexual assault in April. They have been replaced by a Philadelphia area defense attorney with experience handling sex crime cases. Cosby has scheduled for sentencing on Sep 24th on 3 counts of aggravated indecent assult for drunging and assaulting a woman. NY's court /of appeals/ has turned down PDT's bid to delay the defamatin suit filed by a former Apprentice contestant who was accused him of unwanted groping and kissing. The decision means the evidence gathering in Smmer Zervos to the lawsuit can proceed as least for /how/. Neil Diamond may have retired from touring due to parkinson's disease but the singer did not let stopping of giving memorable perfomance at the sunwriter hall of fame. Diamond /earned/ the Johnny mercer award and closed the night with sweet Caroline. And /Inductees/ on the /night/ including Jermaine Dupri, Kool and the Gang and John Mellencamp.
+
+tactic 策略
+sway 动摇，影响
+juror 陪审员
+attorney 律师，代理人
+aggravate 加重
+decent 体面的 indecent 下流的，有伤风化的
+NY's Court of Appeals 纽约最高法院
+apprentice 学徒
+contestant 比赛者，选手
+Songwriter Hall of Fame 创作者名人堂
+inductee 入会者，入伍者
+
+114
+Revolving doors, always open, always closed. So why do we have them?
+Meet Theophilus Van Kannel//, a curmudgeon and a scrooge of sorts. Humbug! He hated lots of things, none more than chivalry, especially opening doors for women. He also hated, and I mean hated the awkward dance with all experienced. After you, no no no, after you. Van Kannel/ created a way to eliminate socialphobia. By drawing inspiration from a preexisting German translation door without draft of air. in 1888, Ben receive the patent for a storm door structure, aka the revolving door. in 1899, the first was install at Rectors, a restaurant in nYC. It was revolutionary. Not only did it eliminate forced social interaction, revolving door kept dust, rain, sleet, snow and noise from entering // buildings and kept the heat and the air conditioning inside. Seems great, energy efficient but there is a catch, no one uses them. In 2006, a MIT study founded only 20to 30 % of people were using the revolving doors. So why don't we use them? Probably swing doors are just easier but /Mr. Van Kannel / we salute you, the antisocial ways
+
+chivalry 骑士制度
+curmudgeon 脾气坏的人
+scrooge 吝啬鬼
+humbug 骗人的谎言
+
+115
+It is plastic, it is most likely beige. And it sounds like this. Chances are if you grew up in the US, you /have played/ a recorder and it was a non-negotiable part of your elementry school education. And for that you can thank this guy, Carl Orff, a passionate German composer. Originally, the recorder was handcrafted, wooden, and made for the highest of society. Even Vivaldi and Bach wrote pieces for the recorder. It doesn't rely a reed or strings, just breath. It's in the flute family and in 1970s recorders started being to produce plastic, cheap plastic. So how did it become the clumsy, awkward sound  we all used to play?That's where Orf comes in. He saw the recorder as a easy way for the kids to just playing music. The logic was simple, the recorder relyed on rythms rather than memorization. If you can sing, you most likely can play it. Orff had the best of intentions to inspire the next generation to musicians and even know they can sometimes be annoying, our hats off to you, for changing the music course in education for generations to come.
+
+hats off to you 向你致敬
+reed 舌簧
+
+116
+Here is a riddle. Male honeybees don't have fathers, but they do have grandfathers. They also can't have sons but they can have grandsons. How is this possible? Bees have weird family trees because of something called Haplodiploidy. Ploidy refers to the copies of Chromosomes an organisms has. Humans are diploid. We have one set of 23 chromosome from our mothers and one set from our fathers. Honey bee queen and female workers are also deploied with 2 sets of 16 chromosomes but the male drones are haploid and have just one set inherit from their mother. A queen, when she lies an unfertilized egg. This difference makes for interesting family tree. Let's say that the black bars is a drone of chromosomes when he mates with a queen with the yellow chromosomes his daughters will get black chromosomes. Their brothers however are not. These daughter queens were eventually made and made their own eggs. Their sons make end up with their yellow chromosomes or they make up of their grandfather's black chromosomes. So take a moment to appreciate the weird bee family tree. Just not on father's day.
+
+chromosome 染色体
+diploid 二倍体
+ploidy 倍性
+
+117 
+It's like that my world is washed out and I see fewer shades of colors than most people do. So // people see a million colors, I may see as many as a hundred million.
+My name is Blandy and producer of CNN and I am a colorblind. My name is Maureen Seaberg. I am a tetrachromat and I am an author. Tetrachromacy is the presence of fourth /cone/ class in your retina. If I keep my nameing my visible colors maybe I will have my own //Crayola about it . When I was at kindergarten, my teacher called my parents because I was coloring leaves of my trees and trunks of my trees the same color because I couldn't really see the difference of green and brown. The only time that I was overwhelming is a paint contractor came to my and brought no fewer than 32 samples. Before I was satisfied, that was a true /beige/. When I pick out clothes, that was hard. I have been known to buy the outfit of the mannequin/ of the wearing because I know that /that/ goes together. You don't want to go clothes shopping like me because the sales people tell me but it matches and I can only look at them sympathetically and keep looking. I never think like Oh if I weren't color blind I would be so much easier to dress in the morning. It's kinda part of me. I guess I'm a /unicorn/ or something.
+
+unicorn 独角兽
+mannequin 时装模特，商店里的假人模特
+tetrachromat 四色视觉的
+
+118
+Researcher crawled deep in this Indianna cave to investigate ancient earthquakes, they thought the secret maybe locked inside the Stalagmites. For Scientific American, this is Dyani Sabin /. Just like tree /rings/, stalagmites holds clues about past climates and events. Stalagmites forms when water collects on cave ceiling and drips down to the floor. Sediments in the water build up into layers. Overtime, Stalagmite grows. Earthquakes can change where the drops land and how fast the water flows. THis shapes stalagmites growth. A shift in the stalagmite central axis tell scientists that there was an earthquake. If they date the layer where there the shift happened, researchers can tease out when these ancient earthquakes occurred just like the width of the tree ring reveal how much water the tree /got/ each year. Researcher can examine stalagmite layers to see how the climate has changed. By cracking open the stalagmite, scientists could see thousands of years of a cave's history.
+
+tease out 经过整理得出
+stalagmite石笋
+
+119
+They dance,they frail, they are big wacky and awkard way to get your attention. But did you know the tall boy debuted in 1996 Olympics as art?
+Meet Peter Minshall, a prominant Carribean artist, known in Trinidad as the // creater of the larger than life dancing puppets created for carnival. His work /made its way to / a book called Carribean festival Arts. And that book made its way to a man, a man on the /steering/ committee of // Olympics. Peter was commissioned to help create unforgetable opening for the 1996 Olympics in Atlanta. In the moment of nothing short of pure genius, Peter /returned to/ his roots by sketching a puppet-like structure but this time he turned it into a inflatable airman that can move and dance just like his manned puppets. For this he had to call another artist, Doron Gazit, an engineering who happened to be obsessed in anthing inflatable. Between both man, they were able to acomplish the seemingly impossible. 60 foot inflatable 2 legged dancing man. The tall boys were nothing short of success. After the Olympics, Gazy got a pattern and licensed designed for the design for advertisers. Now they are everywhere, used cat lots, cropped fields, shopping center, you name it. So the next time you see a big ridiculus inflated tall boy waving at you in the distance, just imagine you are in the Carribean, dancing along to the drum beat.
+
+wacky 古怪的，滑稽的
+puppet 木偶，人偶
+steering 掌舵装置
+commission 委任
+
+120
+In the 1920s and up through the 1950s, Hollywood had a particular way of talking. Come around about noon tomorrow. What are you doing up there? Impersonating a book cover? Really? Really! It was called the midlantic or transatlantic accent but we don't speak like that anymore. So what happened?
+To know why it has disappeared we need to know a little of history. The accent is sort of British American hybrid. Linguistic speaking, it has three tenets. One, drop the arc like the mathah or fathah, two emphasize the teeth like writer, winter and three soften your vowels like dangce of cahh and this accent was aquired so there is no line tracing back to history. Sampling came in early video when base tones were difficult to hear, but many attributed to the popularity of writer of edith skinner. // got a book called Speak with Distinction which was a deep book to help you learn the accent. Either way it was a language for the American upper class. People like FDR, Katharine Hapberg, Cary Grant, they all used it. But after WWII, the accent dwindled in popularity. With the growing of middle class, an aristocratic accent was no longer fashionable. As for Hollywood, acting methods changed and the accent was just too fake. So it disappeared mostly. If you have ever seen the Show Frasier, Niles and Frasier spoked in an updated mid-atlantic accent. To let the women I love die before your eyes. That's right, I said I loved her.
+
+tenet 原则，教义
+aristocratic 贵族的
+
+121
+ Rapper xxx tentacion was shot and killed on Monday in Florida and what police called a apparent robbery attempt. Investigators don't have a motive and no arrests have been made. On twitter Kanye West said, I have never told you how much you inspire me when you were here. Thank you for existing. The original bassist for rock band Three doors Down is accused for violating probation from a deadly crashing in Tennesse. Because he was arrested in Mississippi on weapons and drug charges. On Monday, a judge set bond for Todd Harrell just over 22,000 dollars on three /counts/ of possessing a firearm. However, Harrell has a probation for 2013 crash so the authority of Tennesse has a probation hold on him. The MTV Movie and Tv award give to Black Panther its first taste of award of glory, with the Marvel's /blockbuster/ taking home four honors including 2 of awards for its star Chadwick Boseman. Stranger Things of top TV honoree winning four awards // including a repeat win for best show.
+ 
+ honoree 获奖人
+ bassist 贝斯手 bass 贝斯
+ probation 缓刑
+ 
+ 122
+ You probabaly know that pi is 3.1415 something followed by many many more digits. But what is pi and how do you estimate its value? This is Scientific American, I am Lydia Chain.
+ Pi, relates the circle's circumference to its diameter, it is simply a ratio. Roll a circle on the ruler measures its circumference and divided by the circle's diameter, you get pi, every time. Of course your measurement is only as accurate as your ruler. Mathmetians have /stuggled/for thousands of years to /pin down/ pi's exact value. But pi is an irrational number, which means that there are infinitely many digits after the digit point with no apparent patterns. So the chanllenge is to determine as many digits as possible. Archimedes solved for pi by drawing polygons arounds the circle. You can multiple the polygons number of sides by the length of each sides to find its circumference. The more sides the polygon has, the closer it is to the actural circumference of the circle and the closer you are the true pi value. Modern researcher has created a variety of increasingly complex methods to crunch the numbers. And super computers can now calculate the pi to trillions of digits. If you want a bigger slice of pi or calculate a bigger slice check out these articles on Scientific American.
+
+crunch 碎片化
+
+123
+Submarine is a bit chilly today team, hats on. It is good to have a support system at sea. My grandfather Jocques Cousteau knew how valuable friends were. Beautiful specimen, aren't they. I've got a pistol shrimp and a Goby fish in the bag. But these two are mutualistic symbiotic relationship which means they depend on each other for survival. Here is our works. The piston shrimp is amazing digger but nearly blind. The goby fish likes living in the ocean floor tunnels but cannot dig. The gobby has great eyesight, the shrimp has a great digging claw. They are a perfect match. These two pair up and it's the shrimp digs the goby keeps watch for predators. Once they pair, they are inseperable. That ia a deal, the gobby gets a home and the shrimp gets a seeing eyefish. Scientists are sure how these two find each other in the first place. It could be a chamical or optical attraction. Either way, it's a beautiful thing.
+
+claw 钳子
+pistol 手枪
+goby 虾虎鱼
+
+124
+Latest headline for you from bbc news. PT has been holding talks with republicans leaders and there seems to be /momentum/ growing with the Congress to pass a new legislation of end of his policy of seperating migrant children from their parents at the Mexican border. He hopes to /to use the/ issue as leverage to get the fundings from Congress for his border wall. The US has withdrawn from Human Rights Council, citing concerns about the human rights records of some members and /its regular criticism of Israel. /Washington's/ ambassader Nikki Haley claimed the council was a cesspool of political bias. The UN human rights chief has called the move disappointing. Thousands of Rohingya muslisms who fled Myanmar now /face/ landslides in flooding in neighbouring Bangladesh as monsoon/ seasonal approaches. At least 12 people were killed last week in Southeast Banladesh including two Rehin refugees in camps near the border.
+
+Myanmer 缅甸
+Bangladesh 孟加拉国
+leverage 影响力
+cesspool 粪坑
+monsoon 雨季
+
+125
+PDT has reversed himself and signed an executive order to keep migrant children with their parents when they crossed the southern border illegally. He made the change after growing criticism from Democrats, Republicans even political and religious leaders outside the US. Senators from both parties are strongly criticizing T's administration's teriffs on steels and aluminum. Commerce secretary Wilbur Ross defended the tariffs at the Capitol Hill hearing saying they are necessary to revive the America's steel and aluminum industries. Washington DC's retired archibishop Cardinal Theodore McCarrick has been removed from public /ninistry/ following the allegations he sexually abused a teenager for more than forty years ago. M made a statement and said he had no recollection of the reported abuse, belived he was innocent and apologize for any pain felt by the// victim. /Memorabilia owned by/ 3 time Wimbledon champion /Boris Becker/ is about to be put up for auction, Trophies, watches and clothing, all up for bid as part of the bankruptcy action against the German tennis star.
+
+archbishop 大主教
+ministry 部门
+memorabilia 收藏品，纪念品，大事记
+auction 拍卖
+
+126 
+Russian designer Kate Spade will be /buried/ Thursday in Kansas city where she was born. Services of Spade are planned at the same church were her grandparents married. Spade was found suicide on June fifth in her NYC home. She was 55 and had 13 year old daughter. Jerry Springer will stop making new episodes of his memoribly raucous // talkshow and neither he nor his bosses will talk about it. The Jerry Springer show won't disappear and /NBC Universal said that/ networks have bought the show in syndication will /air/ reruns. Producer said that there is a Possibility that more original episodes could be ordered sometime in the future. Springer presided over 4000 episodes. It is true P Davinson says he and Adarian Grande are engaged. The Saturday last night cast member confirmed the engagement of Jimmy Falon on NBC night show. Grande and Davison are reported dating in May after Grande break up with Mac Miller. Davidson and his girl friends also split around the same time.
+
+raucous 刺耳的，喧嚣的
+syndicate 联合承担，联合制作
+preside 主持
+air 播出
+
+127
+The House has rejecting a hard-right/ immigration bill. The party leader /delayed/ a vote on more moderate Republican alternative as GOP lawmakers remain divided over it. The fight has been intensified by heart shattering /images/ of immigrant children /ripped/ from their families and complicated by /opaque/ statements PDT. Melenia T was welcomed by staff at the Upbring New Hope/ children's center as she made unannounced visit Thursday to the facility of the houses 58 count on the migrant children. She was told the children there most of whom are between ages 12 and 17 are usually distraught when they first /enter/. /The superme Court/ says that states can force online shoppers to pay sales tax. Five to four ruling Thursday is a win for state, who said they were losing out on billions of dollars annually under 2 decade old superme court decisions that impact online sales tax collection. Thousands of people gathered in the Times square of NY on Thursday to do yoga poses, part of an all day celebration of summer /solstice/ and international yoga day. It was raining in the morning but cleared up by mid morning and sun shone on the practitioners.
+
+hard right 极右翼
+remain divided over sth 对于某事意见有分歧
+heart-shattering images 令人心碎的景象
+rip 撕裂
+distraught 心烦意乱的
+
+128
+It's red and pricey, it's a critter and delicacy. It's the creme de la creme // of seafood. But this beloved summertime favorite was once thought of as the poor man's food. Say what?
+It is said that in the early 16th century as the first /Pilgrims/ began to settle in bay areas of America that the ocean overflows with the lobsters. No, literally, they are overflowed. Imaging a shore of lobsters wall, 2 feet tall. As one would expect, the settler ate them up all until anything eaten three times a day they got sick of them, eventually /deeming/ them the cockroaches// of the sea. After that lobsters were used for fertilizer, fish bait and ultimately prinson food. They were fed so often to inmates. There was even a law enact // to protect sad inmates from cruel and unusual lobster punishment. So how did the lobster become the succulent delicacy we all know and love. Fast forward to mid 1800, can food became a thing as did the railroad. Lots were canned and shipped to middle America. At the same time, middle American started travelling them to New England for fresh lobster. By the late 1880s, prices began to surge and by WWII lobsters became the pricy specialty we've all grown to enjoy.
+
+delicacy 美味佳肴
+critter 小生物
+creme de la creme 最好的
+Pilgrims 英国清教徒，旅客
+deem 认为
+cockroach 蟑螂
+bait 诱饵
+inmates 居民，囚犯
+enact 颁布，制定（法律）
+specialty 特点 == speciality （British）
+
+129
+If you are slipping around this winter, your boots might be to blame. Researchers built wintry pod to test how well different boots will handle an icy day. For Scientific American, I am Dyani Sabin. The scientists wanted to measure the grip of winter boots on ice to give them a traction rating. The slip test is simple: a volunteer just walks across a floor of ice wearing a pair of test boots. After each successful trip, the floor is tipped by a degree. A boot just has to make it pass a angle of handicap ramp //, a 7 degree slope to pass. They tested of 98 boots, 90 of them failed. Even if you are not climbing slopes, this slippage score matters because it correlates with the maneuverability on flat ground. If you are stuck in bad boot this season, you can reduce slipping by walking slowly and avoiding over striding or foot rotation. New boot technology features antislip measures like aluminum oxide grit or furry glass fibers embedded in the sole. Prototypes of these boots have already surpassed the researchers slip scale. The next winter, you might not have to channel your inner ice dancer to survive sidewalks.
+
+wintry 冬天的
+handicap 障碍
+ramp 斜面
+maneuver 操纵
+channel 引导
+pod 舱
+
+130
+ It's Thanksgiving. Turkeys, /stuffing/ mashed potatoes but the one thing that has always stood out is a bit of a head scratcher, sweet potato casserole.
+ We're pretty sure that sweet potatoes in marshmallows were not at the original thanksgivings, so what happened？ Sweet potatoes have been around forever and marshmallows this sticky gooey mess actually comes from a plant and has been around since ancient Egypt, a delicacy only pharaohs could eat. Ok fast forward to the 20th century, marshmallow were a big deal and expensive and essentially the crystal of sweet treats. Not only that, but they were even hand made. Marshmelows became a mainstay for highfalutin housewives. Back then house wifes would have to make whipped cream or even meringue by hand but marshmellow were the modern time saver. The first recipe that paired sweet potatoes marshmellows appeared in 1918 and a trade journal cleverly name sweet potatoes and Yums. As marshnals grew in popularity and began being mass produced. More and More recipes began implementing them as an everyday ingredient. Nowadays marshnals are generally reserved for campfires and hot chocolate and that's non traditional traditional favorite. Whether you like sweet potatoes a la marshmallow or plain, happy Thanksgiving.
+ 
+ stuffing 馅
+ head scratcher 挠头
+ casserole 煲
+ gooey 软黏的
+ pharaohs 法老
+ mainstay 支柱
+ highfalutin 浮夸的，自大的
+ whipped 打，这里指打过的奶油
+ meringue 蛋白酥
+ yams 山药
+ campfires 营火 篝火
+ a la=in the style of 按某种风味、特色
+ plain 原味
+
+131
+Jupter is /cloaded in an/ energy mistery. Its /upper/ atmosphere is about as hot as the earth's. Even though the giant planet is five times further from the sun. Where does the heat come from? Intense magnetic fields create beautiful atmosphere heating auroras on the planet but new infrared images show that heat is confined mostly to the north and south poles. But near the equator, there is another heat source. The air above the Jupter's great red spot, the solar system largest storm is hundreds of degrees warmer than its surroundings. This suggests that the heat comes from the stroms below. Pherhaps by slashing shockwaves from turbulent winds and solves the riddle of how Jupter's upper atmosphere stay so warm so far from the sun.
+ 
+cloak 遮盖，斗篷
+aurora 极光
+slash 切口 大幅削减
+riddle 谜
+
+132
+Country music and grabbing your partner for a Do--si-do? You probably have a fuzzy memory of trying to massive these moves in middle school gym class, am I right? So why were we all forced to couple up endure this embrassment? Well it all things to Henry Ford. Now grab a partner in Do-si-do.
+He was the father of the car and the assembly line. But here is a little-known fact: Henry Ford loves to dance, expecially with his wife Clara. Square dancing has deep roots in American culture dating back to Colonial Times. It remain popular until the waltzs and /polka/ mainstream in the 19th century. So in the 1920s, Ford took upon himself to revive the old tradition. He opened a ballroom in his hometown and encouraged his factory worker and their family to take part. He felt square dancing help teach manners, exercise, values and grace. Soon after he worked to create a national square dancing program. Broads of education across the country started endorsing Fords mission and since then students are taught to square dance. Today 24 states still // square dancing as their official state dance. So if you are /feel like reliving / akward dancing in gym class moments I am sure you can find some square dancing lessons somewhere nearby. All jump up and never come down, swing your pretty girl round and round.
+
+fuzzy 模糊的
+Colonial 殖民地
+polka 波卡舞曲
+mission 使命 任务
+reliving 再体验
+
+133
+PDT says people who invede the US must immediately be sent back to their countries whithout a court hearing. T tweeted Sunday that US immigration system is laughted at all over the world and it is unfair for individuals to use legal avenues to gain entry. Turkey's incumbent president /Tecep Tayyip Erdogan/ has claimed the victory in the critical elections based on unofficial results he said Sunday that the nation is entrusted to me the responsibilities of the presidency and executive duty. Authority said a man opened fire on responders at San Diego condominium, wounding 2 officers and sending bullets to the nearby units before being found dead in the aftermath of 2 hour confrontation. The San Diego Union Tribune reports the officers are being treated at the hospital and are expected to recover. A /tiger/ in the Russia's zoo has predicted that Russia will win Monday world cup match against Uruguay. Siberian tiger Yunona had to choose two boxes of meat covered with flag of each team and picked Russia.
+
+incumbent 在职的，现任的
+condominium 公寓
+Uruguay 乌拉圭
+
+134
+While hundreds of protester rallied outside, /attorney/ general Jeff Sessions defended the Trump adminstration's immigration policies and called a congress to act. Controversy continues to /swirl/ over seperating migrant children from their parents. Defense administration official say the administration has chosen two military bases in Taxes to house detained migrants. A firefighter in Southern California is killed and the second one is injured when a resident of retirement /home/ allegedly opened the fire as firefighter reponded to report of an explosion in the building. Wildfires are threatening homes and businesses in the rural lake county in CA, North in San Fransisco, thousands of residents to evacuate, no reports of any deaths, but governor Jerry Brown has declaired a state of emergency in the lake county. /Prince Williams/ has arrived in Israel for the first ever official visit by a  member of British royal family. The trip is built in non political but during the period of stay, prince William will meet Israeli and Palestinian leaders and the visit site in Jerusalem, that is at the heart of the // century-old conflict.
+
+attorney 辩护律师，代理人
+detained 拘留
+allegedly 据说，据称
+
+135
+To play the music, that is utilizing our gentle earth, it's like you are becoming one with the instrument in a very true way. You just sit and go. Yes.
+We are looking at the Gteat Stalacpipe organ of the Luray Caverns in Luray Virginia. When I sense a key, it sends an electrical pulse of a rubber tipped mallet which strike the stalactite, causing and producing a incredibly beautiful music tone. The area of the strike cover is roughly three and half acres which then makes literally the world's largest musical instrument. It is very gentle sound and very peaceful. There is only one like it in the world. It is something incredibly different and wonderfully beautiful.
+
+stalactite 钟乳石
+mallet 棒槌
+
+
+136
+The supreme court has upheld the PT's ban on travel from several mostly Muslim countries, rejecting the chanllenge that is  discriminated against Muslims or /exceeded/ his authority. T says the victory is a great victory in American constitution. Democrats in the Congress are united against the verdict. Health and Human services secretary Alex Azar says his deparment still has custody of 2047 migrant children seperated from their parents. He says under the current policies. Children cannot be reunited while their parents are in/ detension but says all parents have access to know where their children are. PT threatened to tax Harley-Davidson like never before after their decision to move some motercycle production overseas. The company said on Monday /it came to its/ decision because /of retaliatory/ tariffs ecaslating trade dispute between the US and EU. One Harley Davidson official said the tariff could rise the price of the bikes by 2000 dollors. After being at world cup only /in spirit/ through a cardboard cutout his friends carried of him. One Mexico soccor fan finally made it to Russia. Javier and his friends are now travelling to matches in a converted schoolbus hoping Mexico beat Sweden on Wednesday.
+
+verdict 裁决
+custody 羁押，保管
+come to one's decision 决定 
+retaliatory 报复性的
+
+137
+Nylon stockings make me think of Melanie Griffith in working girl. But they actually have a intersting past and it involves the US army, the /gravy/ juice and the department store riots. Until the 1930s, women wore silk and nylon stockings because having your /legs/ uncovered was not acceptable but then WWII happened. The US military began buying nylon and silk and using them to make parachutes and tires and cords. So women donated their stockings to the war effort. The official model for women during WWII was make do and Mend. Wartime ads told the women that they need to keep up /appearances/. So when life gave them lemons women in the late 40th, they make liquid stockings. IT was a makeup for your legs, kind of like a self /tanner/. It looks like stockings if applied well. Women even drew the seamline on the back of their calves and this was not easy. Some /salons/ are offered as servers. But if /this foundation/ wasn't around, women used gravy juice. That brownish /hue/ mimicked the color of liquid stockings and it worked. Soon after the WWII, /Dupont/ the big name of /stocking/ manufacturing said they would be producing women's nylons again. In 1946, a store in Pittsburgh announced that they finally had them. Roughly 40,000 women showed up, only to find out 13,000 pairs were available. Fighting ensued and 1946 became to known as the year of the nylon riots. Obviously, /Dupont/ got their act together by the end of that year. Nylon depression ended and out went the gravy tights. /Thank goodness/.
+gravy肉汁
+parachutes 降落伞
+make do 将就
+self-tanner 防晒霜
+calves calf的负数
+salons 沙龙，营业厅
+tights 紧身袜
+
+138
+Supreme Court justice Anthothony Kennedy announce Wednesday he's retiring, giving PDT the chance to cement consertive control over the high court. The 81 year old Kenedey said he is stepping down after 30 years on the court. The republican-led house rejected a far ranging immigration bill despite its 11th hours endorsement by PDT. The 301 to 121vote have nearly half of the repulicans opposing the measure. PT says he will probably meet with Russian president Vladimir putin of the upcoming trip to Europe July and an advisor to Putin said earlier on Wednesday that Moscow and Washington had agreed on date and location for a summit but said details would not be released until Thursday. T said it will likely happening in /Helsinki/ Finland or Vienna in Austria. In Germany, the defending champion at the world cup has been eliminated. The champion has been knocked out in the group stage following a two nothing lost to South Korea. it was the first time Germany has been knocked out in the first round since 1938.
+defending champion 卫冕冠军
+
+139
+Pogs, you probably remember this prolific 90s fad. But what you may not know is that pogs have roots that go all the way back to 17th century Japan. OK, first things first, let's review the rules. To play you start with a stack of pogs, all face down. Player one takes the slammer and throws it down onto the piles and keeps any and all pogs that land face up. Pogs remained face down are restacked and the game continues on. The player with the most pogs at the end of the game wins. Hooray! The origin of the pogs can be traced back to this: Menko, a classic Japanese game. Players throw cards to their opponent's cards with /the goal / of flipping them over. IN the early 1900s, Japanese immigrants settled in Hawaii and brought the game with them. Overtime it involved into a /version/ play with milk and juice cap from a local dairy company in Maui eventually renaming it pogs after their juice that was made out of a passion fruit orange and Guava. Get it? In 1991, this woman, /a six grade/ teacher named Blosson Galbiso introduced the game to her class. Her goals was to teach them math/, but in the fun way. And it worked big time. Kids loved it and the game exploded in popularity through Hawaii and then spread to the mainland. As the game took off, this marketing guy Alan Rypinski took /note/. He purchased the trade marker's pogs, founded the world pog federation and got them to every store in American. And subsequently into nearly every home with 90's kids. Thanks Alan!
+
+go all the way back 追溯到
+pogs 一种纸片游戏
+flip 
+cap
+dairy
+guava
+take note
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEzMTk2NTc5MDMsLTE5Mjg5ODQ1NjUsLT
-cxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4NzAzMzg3LC0zMTMz
-MjYyOTgsLTEwMjEyNzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbLTE2ODQ0NDI1NzEsLTEzMTk2NTc5MDMsLT
+E5Mjg5ODQ1NjUsLTcxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4
+NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
 -->
