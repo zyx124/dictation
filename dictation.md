@@ -1133,8 +1133,7 @@ guava 番石榴
 take note 注意到
 
 140
-President DT is highlighting his economic policies with the ceremonial ground breaking of 10 billion fax on factory com
-
+President DT is highlighting his economic policies with the ceremonial ground breaking of 10 billion fax on factory complex in Wisconson. The T celebration comes with less road economic news with hardly Davidson's announcement is moving some motorcycle production overseas. PDT met with Russian president Vladimir Putin in Finland next month comes he gather with increasingly 
 
 
 
@@ -1147,7 +1146,7 @@ President DT is highlighting his economic policies with the ceremonial ground br
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTEyOTEwODY4NzksLTEzMTk2NTc5MDMsLT
-E5Mjg5ODQ1NjUsLTcxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4
-NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbNjA2NDI4OTE4LC0xMzE5NjU3OTAzLC0xOT
+I4OTg0NTY1LC03MTQwMjQ5NTEsLTE4NzQyMjUxNTAsLTI5ODcw
+MzM4NywtMzEzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
 -->
