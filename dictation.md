@@ -1132,8 +1132,8 @@ dairy 牛奶厂
 guava 番石榴
 take note 注意到
 
-
-
+140
+President DT is highlighting his economic policies with the ceremonial ground breaking of 10 billion fax on factory com
 
 
 
@@ -1147,7 +1147,7 @@ take note 注意到
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbOTQ4NjAxMDA5LC0xMzE5NjU3OTAzLC0xOT
-I4OTg0NTY1LC03MTQwMjQ5NTEsLTE4NzQyMjUxNTAsLTI5ODcw
-MzM4NywtMzEzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
+eyJoaXN0b3J5IjpbLTEyOTEwODY4NzksLTEzMTk2NTc5MDMsLT
+E5Mjg5ODQ1NjUsLTcxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4
+NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
 -->
