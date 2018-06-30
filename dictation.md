@@ -1126,12 +1126,11 @@ Pogs, you probably remember this prolific 90s fad. But what you may not know is 
 
 go all the way back 追溯到
 pogs 一种纸片游戏
-flip 
-cap
-dairy
-guava
-take note
-
+flip 迅速翻动
+cap 盖子
+dairy 牛奶厂
+guava 番石榴
+take note 注意到
 
 
 
@@ -1148,7 +1147,7 @@ take note
 
 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbLTE2ODQ0NDI1NzEsLTEzMTk2NTc5MDMsLT
-E5Mjg5ODQ1NjUsLTcxNDAyNDk1MSwtMTg3NDIyNTE1MCwtMjk4
-NzAzMzg3LC0zMTMzMjYyOTgsLTEwMjEyNzQ5NTNdfQ==
+eyJoaXN0b3J5IjpbOTQ4NjAxMDA5LC0xMzE5NjU3OTAzLC0xOT
+I4OTg0NTY1LC03MTQwMjQ5NTEsLTE4NzQyMjUxNTAsLTI5ODcw
+MzM4NywtMzEzMzI2Mjk4LC0xMDIxMjc0OTUzXX0=
 -->
