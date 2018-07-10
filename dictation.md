@@ -1136,6 +1136,161 @@ take note 注意到
 President DT is highlighting his economic policies with the ceremonial ground breaking of 10 billion fax on factory complex in Wisconson. The T celebration comes with less road economic news with hardly Davidson's announcement is moving some motorcycle production overseas. PDT met with Russian president Vladimir Putin in Finland next month comes he gather with increasingly anxious // allies who have been following the American's leaders of repeated calls to improve relations with Russia. The WH and Prinmulim announced Thursday that the two leaders would meet in July 16th in Helsinki. Republicans are accusing top federal line forcement officals with holding important documents from them and details about survillance of tactics during the Russian investigation. Deputy of attorney general Ross is dead and FBI director Christo De faced tough questions during the contentious hearing. Pad product makers are taughting their lady's inventions in the super zoo expo in Las Vegas this week. Thousands are gathered to see what is new in the business of furry friends. Venders are supplying autonomous ball //, dazzled colors, shadow prove clothing and all source of connected devices.
 
 
+140
+President DT is highlighting his economic policies with the ceremonial groundbreaking of 10 billion faxconn factory complex in Wisconsin. But T celebration comes amid less-rosy economic news with Harley Davidson's announcement it's moving some motorcycle production overseas. PDT met with Russian president Vladimir Putin in Finland next month comes he gather with increasingly anxious /NATO/ allies who have been following the American's leaders of repeated calls to improve relations with Russia. The WH and Kremlin announced Thursday that the two leaders would meet in July 16th in Helsinki. Republicans are accusing top federal law enforcement officals withholding important documents from them as they demand details about surveillance of tactics during the Russian investigation. Deputy of attorney general Rod Rosenstein and FBI director Christopher Wray faced tough questions during the contentious hearing. Pet product makers are touting their latest inventions in the superzoo expo in Las Vegas this week with thousands gathering to see what is new in the business of furry friends. Venders are displaying autonomous ball /throwers/, bedazzled collars, shed-proof clothing and all source of connected devices.
+
+groundbreaking 全新的
+rosy 美好的
+tactic
+vender
+bedazzle
+
+141
+This /sculpture garden/ located in Japan with primarily unknown to the world until 2016. One of the photographer stumbled upon it/. There are around 800 /sculptures/ in the pod, depicting a mix of /Buddhist deities/ and what are believed to be replicas to real people. All were commissioned by a wealthy Japanese man named Mitsurou Furukawa/. He is set to pay 6 billion yen around 60 millions us dollars to create these collection in 1989. There is a large statue of /Furukawa/ color which stands overlooking the park. The people depicted are set to be his friends and family but it is unclear if he had any  knowledge of their stony replicas. They stands in a Japanese village, the name of the village translated to the way you can meet Buddhist statues. Althouth these life like statues stare with blank expressions, visitors say there is a /unsetting/ feeling of these place and concern night these effigies aren's /so/ still.
+
+stumble 偶然发现
+commission 委托 
+replica 复制品 
+
+142
+Police say that a gunman accused of killing 5 people at the Maryland newpaper carefully planed /out his attack/. On Fri. Jarrod Ramos was charged with 5 counts of murder and was denied bail //. Three editors, a reporter and a sales assistant were killed in the Thursday afternoon /rampage/ at the /Capital Gazette/ following the shooting PT offered the rare show of support for journalist. On Friday T said journalists should be freed from /the fear/ of being violently attacked while doing their jobs. Thousands of Yemenese gathered in their capital to protest the /Saudi-led / coaliation's of offensive on a vital port city. Fight in Yeman has pushed Yeman to the blink of starvation yet this week the UN special envoy to Yeman says its warring parties are willing to restart the negotiations. Soccer fans visiting Russia for the world cup are enjoying a heat wave. Offical say this month's temperatures are up to 4 degrees higher than usual.
+
+envoy 使节 
+coalition 联盟
+rampage 横冲直撞
+blink 闪烁 眨眼
+
+143
+Mac cheese, fine wine, and ice cream. There is something surprising they have in common. And that's Tomas Jefferson. Tomas Jefferson, founding father, third president, and author of the Declaration of Independence. Pretty impressive resume, but what we should really recognize Jefferson for is being a massive foodie. While serving /as an ambassador of France in late 17th hundreds, he /developed a/ specific appreciation for all things European. /While touring Europe/, he took detailed notes about modern farming and agriculture techniques. Upon returing to the US, he began to cultivate his own organic vegetable garden, /berry patch/ and /vineyard/. He even had a /macaroni pasta/ machine shiftover and introduced ice cream to his kitchen. After he was elected as president, he brought his passion for food to the White House. He even served one of his favorites, Macaroni and cheese at the state dinner in 1802. Even though he didn't come up the dinner recipes himself, Jefferson helped serving them a popular them by serving them as decadent dinner parties. So next time you retreat your favorite guilty pleasure, say a small thanks to Tomas Jefferson. Mr president, our taste /buds/ salute you.
+
+macaroni 通心粉
+patch补丁，小块
+vineyard 葡萄园
+pasta 意大利面
+decadent 堕落的，颓废的
+guilty pleasure 罪恶的享受，例如电影，电视，食物，音乐等等
+taste buds 味蕾
+
+144
+Honey bees use bristle brush like legs to comb pollen from their eye hairs. When a bee visits a flower, it also picks up as much nutrien-rich pollen as it can carry. A honey bee is covered it fine hairs to maxmize polon collection even its eyes have a covering polen trapping hairs. Before the bee packs its polon into its saddlebags to carry back to the hive, it needs to remove the sticky powder blocking its vision. Researchers investigated how a honey bee gets itself cleaned up. The eye hair are spaced just tightly enough to balance pollen at the tip for easy removal. Leg hairs are coarser and denser than eye hairs. A swipe of brush like legs traps the pollen and clear these visions but only if the particles are at the right size. Too small like cornstarch and the particle stick among the eye hairs. The study suggests that honey bee hair is optimized for easy cleaning, it collects plenty of pollen but is /hassle/ free for the busy bee. For scientific American, I am Lydia Chain.
+saddlebags 鞍囊
+hassle 麻烦，困难，分歧，争论
+
+
+145
+Imagine 2 acres of land that are covered with Las Vegas history. Dating from the 1930s up to the present day, and when you walk in and they tell a story. The Neon museum was founded in 1996 and we rescue signs. And there are over 200 signs in Neon boneyard. Las Vegas is town that is known for imploding all of its hotels not reserving in history because we are always /wanting/ to move onto a bigger, better,brighter thing. There is beauty in the worn signs . They are a glimpse into the path, you see that the rusted paint, you see the broken Neon and it is kinda bittersweet. The folks that designed these are really master craftsmen. They hand-blowed the'Neon that's in them. the Yucca Motel, the intricate artwork, the glass /blowing that /had to go into the design of actual yucca the stardust spire reaching up into the sky. It's becoming an art form that is going away. We preserve a lot of those memories so people who didn't see the signs actually on the strip are able to come here to get a real scene for they were like in person.
+boneyerd 墓地 废旧的地方
+imploding 爆炸
+glimpse 一瞥
+bittersweet 苦乐参半
+stardust 星尘 魔力
+spire 螺旋而上
+strip 狭长地带 =area
+
+146
+This is Wicket, a red panda. Tens years old, W is a fully grown male with the height of just 2 feet. Or slightly larger than your average house cat. As cute as he is, his population is decreasing dramatically with less than 10,000 left in the wild. Red panda in name, it is not closely related to the name of giant panda but actually close to the raccoon family. He loves to eat bamboo but won't turn down the occassional bird, insect and  mammal for a snack. Native to the eastern Himalayas and southwestern China. Red panda live in trees and /are nimble/ agile climers. Their reddish-brown and bushy tales camouflage them in the habitats from predators like snow lepards. Besides other animals human pose a major threat, poaching and hunting them for their fur. The forest they live are shrinking fast and estimates say their population has been cut in half in the last 20 years. this is the red panda.
+raccoon 浣熊
+nimble 敏捷的
+agile 灵敏的
+pose a threat to 造成威胁
+ camouflage 伪装
+poach 盗用
+
+147
+Beer bottles are typically just 3 colors. But does the color matter? A bottle's color determines just how much light get through to the beer inside. LIght might not seem like a big deal but it can cause chamical reactions in beer that affect the taste. Brewers call these beers lightstruck. Molecules from hops known as iso Alpha-acid are /what make/  beer bitter but they also make beer vulnerable to light. Visible light breaks part these Iso Alpha Acid with the help of Riboflavin also known as the vitamin B2 from /barley malt/. One of the resulting molecules known as the Oxyl Radical loses oxigen and carbon atoms and becomes a Carbonyl Racical. That molecule is eager for a new partner to bond with. And it finds /one in sulfhydryl / molecules that form when /visible /light/ breaks apart/ amino acids found in Barley malt. When they pair up they form a new compound called 3 methyl but 2 ene 1 thiol which is a bit of a mouthful so it often refered to as 3 MBT. 3 MBT happens to the very similar in structure in the chamical makeup to the compound responsible for /a skunk's/ to distinctive odor. And we can taste it up as just a few parts per billion. Some brewers use specially treated hop extracts so Iso Alpha acids won't break apart and form 3MBT. But even these beers may not be safe from funky flavors. /Light can still/ cause reaction that forms the molecule called 2 sulphanyl 3 methybutanol which taste like a onion. Different bottle colors block different amounts of light. Unsurprisingly clear bottles offer no protection from light and green bottles aren't much better but some brewers are still using them and customers have come to expect /skunky/ beer that might requires a slice of /citrus/. Amber bottles are most common for a reason. They block the most of the light almost completely stopping skunking. But if you wanted to avoid these pungent molecules your best /bet/ is just to stick to /sipping/ beers from cans.
+hop 啤酒花
+barley malt 大麦芽
+amino氨基的
+skunk欺骗， 臭鼬
+brewer酿酒人
+citru柑橘
+
+148
+Sally sells seashells by the seashore. Sally was a realy person. This is Marry anning. She sold rare /invertebrate/ fossiles by the seashore. Born in 1799, Mary was /exceptionally rare for a/ woman  at that time. Possibly /possibly as a infant/ she was struck by lightning nor she really was. She was a /paleontologist/ a fossil hunter if you will //. When she was 12 she dug up 200 million year old marine reptile the Ichthyosaurus skeleton. Translation, she just discovered the first fish lizard ever. Throughout her life she discovered hundreds tons of fossils. And sold rare //invertibrates here by the seashore in England Jurassic coast. Unfortunately, mary lived in a time when men rule the /roost/. And many of them routinely took credit for her /findings/ findings but even though she might not have gotten the /kudos/ she deserved while alive. She was gone down the history as the greatest fossilist in the world ever knew. She was even selected as the one of the three most important female scientists in Britain and inspired a tongue twister  // the one for the history devotes. No, when you listening Mary sold fossils by the seashore.
+tongtue twister 绕口令
+invertebrate非脊椎动物
+paleontologist古生物学家
+rule the roost 占据主导
+Kudos赞扬
+
+
+
+149
+I see a future ware, the classical race /car/ driver might feel like an outdated model. The robo car is fully electrical and autonomous race car that can someday race at formula 1 speeds. From /real time/ computing to artifitial intelligence to computer vision the robot car combines some the most advanced technologies in IT. Technology its creators hope will eventually land in your garage. We have a radar area in/ front/ , ultrasonics, five lighters that cover 360 degrees around the car, to GPS antennas // and we use all /four/ wings of the wheel to create /down/ force. We have very low drag and very high /down/ force. We could techniqally drive on the ceiling if somebody builds a track for us. The car's software is also critical to building the fastest car. /Algorithm/ use the date collected from various sensors to make the most efficient /lab/ possible. In reading it to be superficially in the code you make that goes each miliseconds means like meters. The team hopes the eracing like this is the precursor to a new sport featuring serveral mobile cars race against each other at /breakneck/ speeds. This should be driverless competition where we can see who is the best air driver in the world. The team hopes to attract top talents in the fields of engineering, design and computer science to optimize the car's software and hardware for the racetrack. Motor sports make sport punishing test to drive these vihecles. And /robot race team / believes that their work will hasten the process of bringing the autonomous electrical car home to consumers. 90percent of accidents /the course of / human factor all the /algorithms/ which will be created here for /collision/  avoidance or to be fastest driver will go directly to the normal road cars. We need to help people to adopt ideas that robots will be on the roads. Today probably it is difficult to accept but we believe when we'll show how robots are good in strict conditions it's easy to accept them on the road.
+antennas 天线 
+breakneck 飞速惊险的 
+
+150
+The T administration is planning to /rescind/ Obama era guidance that encouraging school to take a person's racing into account to increase diversity /in admissions/ and shift would give the schools and universities the Federal government's blessing to take a race-neutral approach to the students they consider for admission. PT plans to continue meeting with prospect nominees for the /Suprecount/ through the week. Trump interviewed four potential nominees on Monday spending about 45 minutes each. All are federal appeals judges, //  .Tai navy SEALs say all 13 people trapped in a flood cave in the Northern Tailand are healthy and being looking after by /medics/. The seal commander says that 7 members of his unit including a doctor and a nurse are /now with the 12 boys /in the cave when they took shelter and been stuck for 10 days. As Londoners bask in a long hot summer an exhibit wholly devoted to /pleasures/ from ice cream is /promising/ to cool the temperatures. THe british Museum of food opens its doors to scoop. A wonderful ice cream world. A unique exihibit celebreting the past, present and the future perhaps the worlds best loved deserted.
+wholly 完整的
+rescind 撤销废除
+
+
+151
+Right after school, I just like to /try to like run/ to the /gym/ so I can. It is dangerous, but the only thing I am afraid of is /not being able to get to the top /. With climing /I don't think that it really matters with how big you are. If you are smaller, you can hold on longer and your hands might be smaller so it can fit more fingers on holds. I started climing in central park when I was 6 years old now I don't think I can like live without it. When it is closed to the top you are trying to do. Your forearms will usually feel like they are gonna explode and they are gonna burst open. You feel like you have to let go, but in climing, you just can't let go. I think that climbing is obviously a sport. It is also like a dance. You sort of have to be able to like flow up the wall and /come up with your own technique to get . I thing people will get shocked if I do something that they can't do or something because I am still really young and I am a girl. So like doing something that even if a guy can do is special.
+
+152
+In the forest of Southeast Asia, high in the tree top, a mythical creature lives. It turns out that dragons are real. So I have to call a biologist. I am Anthony Russell from department of biological science of university of Calgary in Albert Canada. We are talking about a specis of flying lizard. So it is called Draco Volans which means flying dragons. OK these flying dragons are a little different from what we have seen in the movies. First starters, they are small, only about 8 inches long. And they don't breath fire but they do fly in a way. They are gliders which means they have a control of their desend and trajectory but they don't have any power in it. For every one foot they go down in vertical distance they are able to travel along 6 feet long. And that's because they don't actually have wings. They are actually modifications of their rips there is nothing to do with the legs and arms. Evolutionary speaking, this help lizard survive. They can escape attacks and they have broader living zone. So they might not be dragon dragons. But sometimes people name things because it is more dramatic effect. Well they're still incredible lizards actually no you know what? I am still gonna call them dragons.
+
+
+153
+How was the declaration of independence from the elements, millions of visitors and most of all, time. The national archives and record administration // uses physics, chemistry and technology to keep one of our nation's most important historic document safe. A special encasement designed by the national institute of standards and technology uses aluminum and titanium. /to isolate declaration of indenpendence from the outside environment. The frame of the base is machined from solid blocks of metal to minimize the risk of leaks and a seal made of tin and nicle alloy keeps air out. A double layer of tempered glass /with/ an anti-reflective coating is suspended over the document. It's not  bullet proof, sorry /Nic Cage/. But it is strong enough to withstand changes of temperature and barometric pressure. The document sits on a cellulose sheet of paper which helps regulate humidity. And an aluminum platform precisely cut to fit the parchments irregular edges so it is invisible to visitors. Parchment, which is made from animal skin is sensitive to air pollution and changes in humidity. So the air inside the case is inert argon gas at a relative humidity forty percent. Argon won't react with the parchment. And its atoms are too large to escape the glass, unlike helium which was used in older case. If the humidity is too low, the parchment can crack or ink can flake off. But if it's too humid, collagen of animal skin can turn to gelatin. To monitor the /conditions/ inside the case, archives used tools called absorbtion spectrometer. A beam of light trans into the case at small /sapphire/ window. It is reflected by a series of reflected mirrors under the platform to a sensor behind another sapphire window. This system can detect changes in humidity or the gas composition. Modifications can be made .to run. other test. The case is so airtight that NIST estimates that will be 100 years or more before the oxygen consentration the case reaches half a percent. The originals of American's life liberty, and pursue of happiness will be secured for many more independence days.
+gelatin 明胶
+collagen 胶原蛋白
+spectrometer 分光计
+sapphire 蓝宝石 天蓝色
+nic Cage 尼古拉斯凯奇
+parchment 羊皮纸
+flake off 剥落，离层
+
+154
+I can bench press 445 pounds and I can flip a 270 pound tire I can do hand stand pushups and I can climb a rope. I can look damn good /doing it/. I am Zack Ruhl and /adaptive/ crose fitter and a power lifter. I was born of a deformity// and pretty much my legs looked real messed up so I would never be able to walk using them. They made a decision to get them amputated. I have been an amputee, a double amputee since I was 2 years old. /My realtionship with the / fitness started out in high school and I started lifting weight like anybody else. / I always did it for appearance at first. If I am going to be a /torso/ I am going to be one damn looking good torso. And then it just took over my life. Like I wanted to know everything there is to know about the /anatomy/ even body how to get stronger what create muscle growth. Like I was a sponge. I have been told I can't bench press for 400 pounds. My ass. I have been told I wouldn't have a gym of my own. My biggest motivation in life is that people telling me I can't do something. I offer free /classes / and free personal training to adaptive athletes or people disablities so I have a girl with /cerebral palsy/ have a girl that has a /spinal cord/ injury. I have another /quadruple/ amputee that I am personal training right now. /crossfit/ has done so much for my life and I feel like I /just want to pass that on  and show everybody that it is possible. you can work past disabilitys and what ever your goals are especially fitness wise, you can meet them. it is gonna be a different route than somebody else.
+
+amputate 截肢
+amputee截肢者
+crossfit 健身运动
+155
+I was the first women to graduate with a Docorate from Julliard and now I play the toy piano . Life works in mysterious ways. I have transform the /toy/ piano into a real instrument. To play the piano well, you have to practice on it every bit as hard as you would on a normal piano. In fact I think you have to work even harder because the action is so primitive you can make it sound beautiful, you can make the sound convincing. It is a bit like going down a rabbit hole and taking your audience with you, way back down this avenue to your childhood days. Once a skeptical person came to a toy piano concert that I give, I am able to turn them around. It's a whole extended family now of people into toy pianos. It is a fearless little band we are willing to stick their necks out for for toys.
+stick your neck out for something 冒险尝试某件事情，即使知道可能不成功
+
+156
+The trick is trying to think like a cat. It's one thing to think what would it be like if I were a cat. It is another thing to try to figure out is what is it like for a cat to be a cat. So I have different ways of creating purr kind of sounds. I am David Teie, a classical musician mostly by /trade/ play the cello in the National Symphony and I came up with the idea of writing music for cats. Here are my birds sound for study like slow them down. Cats are not /very vocal/ and not partically social. The ultimate goal is to be able to communicate in something like their language. What other the sounds are there that you know cats would enjoy. Most of the brain /development/ of cats happens outside the womb. I thought the sound of suckling is a reward related sound that all cats will have heard as the brains were forming, this /swishing/ kind of sound. Yeah I would totally use that and name that after your jacket, that's my Louis W swish. Another example of sound is /the purring/. When you play the music /how does/ a cat reacts exactly. There are things like they will rub up against the speakers of shows kind of, ownership but showing just attention and it tends to be more conforting of those cats who have had a something of a hard life. Cats who need more comfort are more comforted by it. Do you have a cat? No I actually don't. I am allergic to cats. You are allergic to cats. Yes.
+
+purr 惬意地打呼噜
+by trade 职业是
+cello 大提琴
+womb 发源地，摇篮，子宫
+
+
+157
+The Arctic becomes a really interesting challenge because we know there are hydro thermal /vents there/. What's gonna be living there? We know we can answer all the questions if we go down and look. We are standing on the backdeck of /Woods Hole's/ the newest research ship, the R/v Neil Armstrong and what we have behind us is the Neried  under ice. It is one of the newest robotic vihecles that's being designed specifically for studying ice /covered oceans here on earth/. /We have got photographs of hydro thermal vents/ we haven't been able to go down and study them in detail and this is the only kind of technology that could do that. The way we have /been able to/ study the /unperturbed system in the past is/ using the ice breakers where by breaking the holes in the ice. There is danger you are perturbing by system just by getting there in the first place. So what we have designed is a vehicle that you can launch for a breaker but it can then swim laterally under the ice to get to the unperturbed systems and study in new ways. The first seem on the back is the little black pods with orange propellers on them. So those are the /thrusters/ that's what we actually used / to control how the vehicles moves left and right and forwards and back. We have the high definition camera, so that;s we do out video sensing. And what we also have in there science /pay/load of things measured for example, basic physical parameters in the ocean, how salty it is, its temperature as you find hydro themal event on the sea floor in every different ocean. you don't find the same animals inhabiting that are thing niche.  There are different animals that have evolved to adapt to the same environment conditions. If we could understand where the barriers are between the different populations where these geographic provinces are, that could actually teach us something not only just about how hydrothermal vents were but also how evolution biology works in the //. So like a foundamental questions of how biological evolution exists.
+
+niche 生态位
+unperturb 
+perturb 干扰
+latera侧面的
+pod豆荚 
+payload 负载
+
+158
+There's something quite primal about being in a tree, something that just feels really /safe/. It is just great /go/ climb a tree. I am an arborist, it is someone who takes care of the tree. We prune, maintain, remove if dangerous /really/ the whole healthcare of the tree. In Melbourne we are quite lucky in the ranges. There's trees up there are 85 to 90 meters, really really big trees. At the moment I am at 24 meters at the tree in a beautiful red/ gum/. This tree we're today maybe 250 years old it will be such a /shame/ to the landscape to lose something like this. Is it dangerous? Yes probably it must be really dangerous. it is one of the most dangerous jobs in the world apparenly. Every single tree has something different to put into it. That hole is big enough to take one of the syringes and actually prevent all /leaf-miners / from attacking these leaves. Working with trees, understanding trees and having respect with trees is the only way I think you can then cut the trees. The thing is something the trees needs to come down. It is a obvious failure of // or the best one to come out, remove it safely and /advise about/ how they can replant. We are here to try to preserve and look after the // trees because we very much have a affection for them.
+
+primal 原始的，最初的
+prune 修剪
+Melbourne 墨尔本
+gum 橡胶树
+syringe 注射器
+
+159
+My goal is to get every every single woman to carry around condoms,  just as they carry around everything else. It's like /a no brainer and it's like /joke like/ how do we get people to take selfies // with condom. I am Meika Hollender and I am a co founder of sustain which is a all natural sexual wellness / products marketed to// women. It you ask a man what he think of a woman who's carrying condoms, it is negative, 90+ percent of the time. Only 19 percent of single sexually active women use condoms regularly one in four college freshmen actually get a std during her first year at school. This is a crisis and this is the subject that isn' being talked about because when you think about condoms lubricant, these are products that can be seen as the taboo. Women are extremely unfortable buying and carrying a condom. When I go to my peers that my people that I know there are the worst offenders. We are trying to rebrand a little bit. and completely enpower women to take control of the sextual health with much better products. Most luberacant out there contain parabens and glycerin and petroleum, silicone. Our products having none of these things. There are aloe and water based. It is the only /faretrade/ certified /carcinogen/ free condom on the marketing of US. We are stating a conversation that needs to be had. /So I had a lot of timen taking to consumers about why they not only needs to be using our product but also why they should be just using condoms in general. You shold never feel ashamed for wanting or having sex. But the reality is, you're out there for you and you need to protect yourself nobody else is going to.
+
+aloe芦荟
+STD Sexually Transmitted Diseases
+taboo 避讳，禁忌
+paraben防腐剂
+glycerin 甘油
+petroleum石油
+carcinogen致癌物
 
 
 
@@ -1145,8 +1300,4 @@ President DT is highlighting his economic policies with the ceremonial ground br
 
 
 
-<!--stackedit_data:
-eyJoaXN0b3J5IjpbMTY3OTQ3MzIzMywtMTMxOTY1NzkwMywtMT
-kyODk4NDU2NSwtNzE0MDI0OTUxLC0xODc0MjI1MTUwLC0yOTg3
-MDMzODcsLTMxMzMyNjI5OCwtMTAyMTI3NDk1M119
--->
+
