@@ -1293,11 +1293,18 @@ petroleum石油
 carcinogen致癌物
 
 
+160. 
+We are driving out to Long Island today, because we found out there is a man out there who legally change his name to Santa Clause. So yeah, we are gonna go interview Santa. It turns out this Santa is not so traditional. Ｉdrive a black Dodge pickup truck. With /vanity plates/. Oh yes I have /vanity plates/ it calls santasla. Before he was Santa, he was Frank. I was born in Broklyn but we lived there on Long island. I have been married for 23 years now. How do you tell your wife that you are changing your name to Santa Claus? She said as long as I don't have to change my name.Go right ahead. Santa has been Santa for almost 2 decades. And he is good at it. I probably on and this is not an exaggeration. Thousands of refrigerators. He got the laugh. You know that's my Santa laugh. The suit, I design my suit. But here is something about Santa that might surprise you. I have three tatoos on me of me. I am very /into zombies/ I love barbecue. I have a smoker and you can fit 150 meat in. He has got the Tiki hut and the above ground saltwater pool in his backyard. Yes I am that extreme when it comes to my idea of relaxation. So there is a little Frank left there. But no question, he is fully committed to being Santa. I want to look like the poem says. I am the most loved person on the planet. We totally met Santa.
+
+vanity plates汽车牌照
+Tiki hut 棚屋
 
 
+161.
+A narwhal's horn is actually in an enlarged tooth and not a horn at all. Today we are talking about narwhals, unicorn of the sea./Nice shirt./ My grandfather Jacques Cousteau studied and explored the Earth's ocean, I do too. But our summary is the Arctic waters searching for the //. Euh, he is a beauty. A n can grow up to 17 feet in length and their fron tooth can grow up to 10 feet in length. It is the only straight tusk in the world. Typically, these are only found on males. It accually full of up to 10 million nerve endings helping the n detect the pressure, salt level and even temperature in the water. Here is an interesting fact. A n tusk is flexible. It can bend about one foot in any direction without breaking. It was originally thought these tusks were for dueling but new theory suggests that they are for attracting a mate. N don't migrate like other whale species. They spend their entire lives in ice Arctic Water hunting /squid/ fish and crab. If you want to see one live, you have to come up for north because n don't thrive capitivity. Rather, they die. Some animals, we human just can't tame.
 
-
-
-
+narwal独角鲸
+unicorn独角兽
+duel决斗
 
 
