@@ -1307,4 +1307,7 @@ narwal独角鲸
 unicorn独角兽
 duel决斗
 
-
+162.
+This is Allen Dean Foster and he is a science fictionary. yes I am. Maybe you are familiar with one of his books. 1975 I worked with George Lucas and wrote the book version of Star Wars. No way. Yes, way. This Allen Dean Foster's office. This is the view of Allen Dean's deck. This is how Allen Dean meet George Lucas. They were looking for someone to do the book version of the science fiction film that no one knew anything about. I was asked by my publisher if I be interested. I said yes and that's how the book came to be. It was an opportunity of lifetime but it came // with one pretty big caveat. George's name were on the cover and I couldn't admit to have ghost written the book. So he lied for a long time. So I have to lie to people's faces for 20 years. This is lier Foster 's library. He's written a whole bunch of all novelizations. Star Wars of course, First 3 aliens film, The Chronicles of Riddict, Clash of the Titans and most recently the Force Awakens. And a lot of other books too. Maybe that's the least interesting thing about it. The secret is that will foever remain unrevealed. Theseaare the Allen Dean's weight lift /trophies/. This is Valentine's bench press. This is Valentine's front kick. go that for Chuck Norris/. Not a joke. Here is Allen Deane with his camera. He has recorded this travel on 6 continents. I am stuck on this one planet and I determined to see as much of it as I possibly can. /So how does a  World famous, crazy prolific sci-fi writer manage to keep this up and still finds time for his writing? To stop learning is to start to die. Didn't /Desiderius Erasmus/ sya that? Yes He did. You know, John Ford /only needed one take.
+caveat警告
+trophy奖杯
