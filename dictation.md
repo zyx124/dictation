@@ -1311,3 +1311,59 @@ duel决斗
 This is Allen Dean Foster and he is a science fictionary. yes I am. Maybe you are familiar with one of his books. 1975 I worked with George Lucas and wrote the book version of Star Wars. No way. Yes, way. This Allen Dean Foster's office. This is the view of Allen Dean's deck. This is how Allen Dean meet George Lucas. They were looking for someone to do the book version of the science fiction film that no one knew anything about. I was asked by my publisher if I be interested. I said yes and that's how the book came to be. It was an opportunity of lifetime but it came // with one pretty big caveat. George's name were on the cover and I couldn't admit to have ghost written the book. So he lied for a long time. So I have to lie to people's faces for 20 years. This is lier Foster 's library. He's written a whole bunch of all novelizations. Star Wars of course, First 3 aliens film, The Chronicles of Riddict, Clash of the Titans and most recently the Force Awakens. And a lot of other books too. Maybe that's the least interesting thing about it. The secret is that will foever remain unrevealed. Theseaare the Allen Dean's weight lift /trophies/. This is Valentine's bench press. This is Valentine's front kick. go that for Chuck Norris/. Not a joke. Here is Allen Deane with his camera. He has recorded this travel on 6 continents. I am stuck on this one planet and I determined to see as much of it as I possibly can. /So how does a  World famous, crazy prolific sci-fi writer manage to keep this up and still finds time for his writing? To stop learning is to start to die. Didn't /Desiderius Erasmus/ sya that? Yes He did. You know, John Ford /only needed one take.
 caveat警告
 trophy奖杯
+
+
+163
+Air pollution is easy to spot, hanging over the city or sputtering from a tale/pipe/. But there is a lot of indoor air pollution too, even it is not obvious. This scientific American 60s science. It is caused by volatile organic compound or VOCs. They can come from building materials like panes, carpets, homes and personal care products like cleaning chemical air freshner etc. Vadoud Niri, an Analytical Chemist at the state university of NY Oswego //. And they can also come from cosmetics, and that /cosmetics/  part is what caught Niri's attention. One day when I went to /nail salon/ with my wife, I noticed this smell of specifically acetone in there. Acetone can irritate your eyes, skin, nose and throat and at high concrentration can cause Nausea, headaches and other nervous systems problems. Niri figured one way to get rid of acetone might be house plants. He then ran his own experiment, using a air tight chamber, 8 vocs in concentration of similar those found in /nail salons/ and five house common plants. A jade plant, a spider plant, a Bromeliad, a Caribbean tree cactus and what is known as Dracaena plant. It turns out a 12 hour test, it was the Bromeliad that /scrubbed/ the most chemicals from the air. But as for the original quest moving acetone from /nail salons the Dracaena beat all the others, sucking up to 94 percent of the offensive compound. He presented the result of the American chemical society in Philadelphia. For house apartment he says: use a variety of plans to make sure you take all aocs from your indoor air. Plus they are an energy alternative to other air cleaning devices, in other words, a truely green solution.
+
+nail salon 美甲的场所
+sputter噼啪声，喷溅，快速说话
+talepipe尾气管
+cosmetics化妆品
+acetone 丙酮
+nausea 恶心
+cactus 仙人掌
+scrub 刷洗，用力刷洗
+
+164.
+I can tell you I have just jumped out an airplane before, I have done almost every sport there is out there and done all these thrills. I have never felt the same as I do when I am dancing. I am a break dancer and I go by B grils snap one. Snap because I am actually double jointed, and then the one added it because I am the only B // girl up in Alaska. I strictly compete against boys. It makes you be good not for a girl but as a dancer. Professionally, I am a UH /60 Black Hawk mechanic/ . I spend 40 hours a week // fixing helicopters, inspecting helicopters, replacing major component. Being in the army has taught me a lot self-displine and focus because if my /body goes kaputs/ I can't do my passion. The hip hop scene in /Anchorage/ is very small. We are so far away from the rest of the hip hop scene from the rest of the United States and in the world. Being able to accomplish /what our crew/ memebers /have been able to accomplish /sets a/ good influence for every body lives here that if they just put enough time and effort and passion into their craft they can actually go somewhere and do something with it. Doing all these incredible things with my body to the music and battling with other people is a remarkable feeling that I just /simply/ can't get anythere else.
+
+kaput adj 运转不正常，完蛋了
+anchorage 停泊处
+
+165
+In two German cities, like the birthplace of the world wide arts revolution. One which looked to strip buildings from necessary adornments and build the foundation of what it's called modern architecture. Welcome to the home of Bauhaus.
+It all started here, Weimar University 1919. This is where German architect /Walter Gropius/ alongside other artists founded the Bauhaus movement. His office alludes what the architectural style would become. A force for clean simple designs fit for the everyday life. Not too far away in Weimar, is the first official Bauhaus building, Haus am Horn built for exhibition for 1923. Its  clean lines and lack of adornment might look average today but almost one hundred years ago, it was truly revolutionary. 17 miles away in Dessau, the movement continues in 1925 initiating its most fruitful period. The most stuning representation is the Bauhaus Dessau. Seen as the pivitol building in Bauhaus, this structure amaze the world with its steel frame constuction and asymmetrical plan. Nearby, you also have other buildings in the Bauhaus style, the industrialist, the minimalist, a static is visible in all of them. In 1932, the Bauhaus school moved to Berlin where it /dissolved/ itself a year later due to the nazi regime. Nevertheless the movement spreads all around the world, creating a international trend for all other sphere of arts
+stunning 极好的，极有魅力的
+adorn装饰
+
+166.
+If I was put on a /desert island me/ and cube and given unlimited time, would I eventually figure out how to solve it or do you need to how to solve it, you need to be taught? It sort of depends on how you go about it, which a lot people think you know if I just keep twisting its bound to  fall back into place that's impossible because the Rubik's cube is just too complicated. If you were /to guess/, just based on how it looks, how many permutations will you think that this holds. Yeah, I don't know, billion? Every single /rubic/ tube has 43 /quintillion/ permutations and /a quintillion is a  billion of billion, so it's billion square it's ten to the power of 18, which a number of people can't even comprehend. If you gonna stack every single possible release cube permutation from end to end, it would extend seveal hundred of light years into space. But on the other hand if you focus on trying to develop a strategy, you certainly can succeed. For instance the man who created it, Erno Rubik,  he didn't' have a choice he didn't know if he could solve it. So you have talked in the book about some the latest math, we are still kind of learning /intricacies of Rubik's'/ cubes, and when it comes to how efficiently you can solve thing google made a recent break through right? Yes within the last of couple of years, a problem was finally solved that have been stumping for a very long time which is called the god's number problem. So every rubic cube in theory for every permutation has an optimal solution right? And for a long time it's been a open question what is the size of the optimal position in terms of times of the modes, how efficient is it possible to be? Only after you use some super computer Google who specifications man under reps with determine that 20 is god's number. In other words, if there were /omniscient/ being given a Rubik's' cube, that omniscient being would be solve in 20 moves or fewer every single time. There is a / separate/ competition called the fewest move competition which is mostly mathmatical minded of the Rubik's cube 17 different events we do. In an hour, and you try to come up with the most efficient solutions possible. So if I am doing that, I could  spend a lot of time looking at this and deciding trying out if there a more efficient means of doing this, you know , the you know the algorithms I know which does that.
+
+ominscient无所不知的
+permutation置换，序列
+quintillion百万的三次方
+
+167.
+Hair trends as quickly as they appear, they disappear except for this one. Mans powdered wigs a trend that strangely lasted a century and has closed ties not to  fashion but to an STD. Powdered wigs also known as the perukes were all the rage in the 1700s. They were the hot item for aristocratic men but it wasn't a stylistic choice. Rather men mostly wore the wigs because of the /syphilis/. Started in 1580, /syphilis/ outbreaks spread to become one of the worst epidemics to ever hit Europe, on par with the black death. There were no antibiotics to combat the disease and so victims faced the blindness dementia, hair loss and even open sores. At that time going bald is considered as quite embarassing. As /syphilis/ spread the wig makers got busy. They created beautiful perukes /coated/ with powder and even scented with lavender to hide any unpleasant smells. At this point, the wigs are not yet considered as stylish but all that changes in 1655 when Luis 14th started going bald. Clearly the king of friends couldn't be seen without hair so he did what any man of that day they would. He bought a wig well actually he hided 48 of the best wig makers to create him a custom wig. 5 years later, the king of the England did the same thing. Shortly thereafter, aristicrats followed the /suit/ and does term bigwig was born.
+
+wig假发
+STD 性传播疾病
+aristocratic 独裁的
+all the rage  风靡一时
+peruke 长假发
+syphilis 梅毒
+dementia 精神错乱，痴呆
+bigwig 权贵
+
+
+168.
+So you think /tinder/ is a recent phenomenon. What if I told you tinder on /paper/ existed back in Victorian days? Here is what happened. Way before hallmark people use personal calling cards to connect with each other. Picture this, it was the late 18 hundreds, a man and a woman crossed paths and they exchanged a look. In returned the man /passed his/ card. See society at that time was very formal and not satisfied with the stiff social conventions, youngsters got creative, enter / escort/ cards , the calling cards with a twist. Think of the most rediculus and /cheesy/ pickup line you ever heard written on a card. Come and see our new lamp. You can turn it down so low that there are scarcely any light at all. PS, Our sofa just holds two. I am just your size of complexion. I am going in your direction so if you have no objection I'd like to be your protection. I am CY/ Young who the devil are you. Now picture that card slipped to you. It was a way to flirt in public without anyone ever knowing. May I have the pleasure of seeing you home this evening? And in this case, oh she /swiped left. Sorry.
+
+swipe left 左滑，表示在社交APP上拒绝某人
+Tinder 火绒，一个社交软件
+exchange a look/words 看着对方/和对方谈话
+escort 护送，护卫
+cheesy 庸俗的
+complexion 肤色，面色，气色
+
