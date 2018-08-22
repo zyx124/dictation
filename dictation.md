@@ -1366,4 +1366,505 @@ exchange a look/words 看着对方/和对方谈话
 escort 护送，护卫
 cheesy 庸俗的
 complexion 肤色，面色，气色
+169.
+The moment right before I jump, there is a split second there where everything goes completely silent. And that's /when I / push off the edge, 321, see ya. Today I am speaking with a woman who kinds of blows my mind. My name is Ellen Brennan, I am a wingsuit base jumper. Don't be modest Ellen, what else? Currently I am the fastest flying woman in the world but it comes to the /wingsuit base/ jumping. A wingsuit is a special suit that inflate with air and allows you to / in essence/ fly or glide. Ellen does this all over the world at crazy speeds. On average I am flying about 180 or 190 kilometers per hour. That's almost 120miles per hour. But to get to that speed, you need to jump off a cliff. My /vision is the first thing I notice / that everything become very/ focued on just my feet. My heart's beating /superfast it is usually/ beating 160 or 170/min. Sometimes people will talk to me and I won't even hear them. As /soon/ as I push off, I can hear the slip of my feet off the rock and I slowly start moving, I can hear the winds start to rush like it is something that shouldn't happen, it is not natrual, but I am doing it. How in the world did I get to be able to do that? It is one of the coolest things in the world that I can't /think of/ anything better to do. It's pretty mind-blowing.
 
+essence 本质，大体
+in essence 本质上
+mind blowing 动人心弦的
+
+
+170.
+12 Russia /intelligence/ officers has been indicted on charges they hacked into democraitic email during the 2016 US presidential and released stolen information before Americans voted.  /The indictment/ comes days before PDT holds the summit with the Russian president Vladimir Putin. It was the clearest allegation yet of Russian effort to meddle in American's politics and first to implicate the Russian government directly. PDT and Queen Elizabeth II got acquainted over tea at Windsor castle. Towering over the queen, T and the monarch /shared a few/ interaction as they reviewed troops at the royal castle in windsor. The collapse of a gas station chain owned for decades by vice president Mike Pence family has cost tax payer's millions of dollars to clean up more that 85 contaminated /sites in three states/. That's the findings of associate press analysis of court documents, /business/ records and environment records. University of Louisville is removing the Papa Jonh's name from /his football/ stadium. The Kentucky school is taking action after the pizza /chain's/ founder John Schnatter reportedly complained that colonel senders never face a backlash for using a racial slur.
+
+implicate 牵涉，表明，暗指
+get acquainted 结识
+colonel /kernl/ 上校
+backlash 抵制
+slur 诋毁
+
+171.
+Silly string, that bright fun party in an aerosol was actually invented by mistake. Believe it or not, it used to help heal your broken bones. 1972, Leonard a Fish an inventor and another Robert Cox, a chemist were granted a US /patent/ for foamable /resinous/ composition. The 2 initially set out to create an aerosol // can that could spray an instant cast on a broken leg or arm and /eventually it/ worked. But when it came to packaging their discovery they tested 5 hundreds different types of nozzles. Through their test, Fish /came/ upon one that produce a string, a string that shot 30 feet across the room. Inspired, they decided to turn their /instant cast/ into a toy. After alternative formula to produce more colorful less sticky string, the pair set out to market their product.Either of them knew the first thing of selling toys so they made an appointment with Wham-o in CA. But the mean didn't go exactly as planned. Fish and Cox sprayed the string all over the office including on the person they are meeting with. And unsurprisingly, they were asked to leave the premises. Just one day later, Fish recieved a telegram from Wham-o asking them to seng 24 cans for a market test. Turns out the trace of the silly string was left on the lamp shade in the office and was later spot by W 's owners who themselves demanded a market test immediately. 2 weeks later, W signed up a contract to license the product now known as  silly string.
+
+premise
+cast 
+spray 喷雾
+
+172.
+If you are like, you know that multitasking does not always save time. You slow sown or make mistakes that require fixing. But maybe I am doing the wrong things. A new study shows that people on a stationary bike pedald faster when they simultaneously tackled by some sort of mental test. Even the researcher were surprised by that result. They originally set out to demonstrate what other studies have shown that 2 people tried to do two things at once, they do both more poorly. Their counterintuitive finding is in the /journal Plos One. In the experiment, subjects were asked to complete various cognitive of jobs that ranged in difficulty. Everything /from saying/ go when they saw a blue star and a projection screen, to remembering a long list of numbers and then repeating them back in reverse order. They tackled these tests once while sitting in a quiet room while on a bike. Turns out cyclists rode 25 percent faster when they were distracted by some mental gymnastics but only when the tests were relatively easy. When confronted with tougher /brainteasers, their cycling speeds were about the same as when they have nothing in particular to think about. And the case for wondering, the participation of cycling neither help nor hinder their brain function. The findings's good point toward a new program in which you get better workout simply by using our heads.
+
+brainteaser难题
+tackle 阻截，处理
+
+
+
+173.
+PDT and Russian President Vladimir Putin held their /much/ anticipated summit in Helsinki Monday at a /news/ conference, Putin strong rejected the allegation that Russia interfered the US elections. T suggested that he believes Putin's denials. He just said it was not Russia. I would say this. I don't see any reason why it would be. Meanwhile key members in congress including some republican were quick to critize T's performance. Arizona Senator John McCain /tweeting/ the conference held in Helsinki " One of the most disgraceful performances by an American President in memory." A NY State agency is launching an investigation into /tenant/ harassment in the Broklyn Department building by Jerry Kushnar's family real estate firm. Some residents say the company used relentless construction to push rent-stablized tenants and bring high condo-buyers in. And  a jubliant scene in Paris as millions line the streets /to cheer on and welcome their world cup championship soccor team.
+
+disgraceful 丢脸的
+tenant 租户 房客
+real estate 房地产 不动产
+condo公寓套间
+
+174.
+This great story is made possible by wells Fargo established in 1852 re-established in 2018. Once a bountiful fish found in the deep /and rocky/ water along the US south Atlantic coast and go for Mexico. Overfishing now poses a serious to their ability to reproduce. This is the snowy Grouper. The snowy is named for the white spots that speckle its scales. As the groupers grow, these spots tend to blend into the natural brown color. They were /often eat small crabs and small /squid/ that they swallow whole with their large mouths. Snowy groupers all begin life in females. But as they age, some become males. Since 1990, overfishing in juveniles has affected the populations bucause not enough fish reach maturity to change sex. Regulations were put in place but not enough with done to slow the overfishing with the specis. The snowy grouper is now listed as the vulnerable and its populations continuou to decline. This is the snowy grouper.
+
+grouper 石斑鱼
+rocky 多岩石的
+pose a threat to 造成威胁
+juveniles 青少年的，幼年的
+
+175.
+In a stunning reversal after receive by partisan condemnation over his embrace in Russian president Putin, T said he mis-spoke when he said he saw no reason to belive Russia interfered in the 2016 US presidential election. He made the comments while meeting the republican law makers in the WH. Former president Barack Obama delivered his highest profile speech since leaving office in South Africa on Tuesday. Taking aim at quote "Strongman polics without ever mentioning T by name. He urged people around the world to respect human rights and other values now under threat and an address marking the hundred anniversary for anti /apartheid/ party leader /Nelson Mandela's birth/. A team of /astronomers/ is reporting a dozen new moons circling Jupiter, bring the total number of the moons around the giant gas planet to 79. Saturn is the next planet with 61 moons. A woman in Wisconsin was rescued after she rode her bicycles around the lowered gates and /then tumbled / into the gap as a lift bridge rose. A survailence camera captured the July 4th instant. Onlookers rushed to the woman's aid and /bridge/ operators stalled the bridge until the woman and her bicycles were stracted.
+
+a'partheid 种族隔离
+Saturn 土星
+tumble 跌倒，混乱，翻滚
+
+176
+You probably remember this hilarious moment from /When Harry Met/ Sally. Then she tells you her stories, you tell her stories. Well this rediculus /romcom/ scene is an indicative of a real and very serious sport which you believe it or not , introduce our society to sport betting. Competitive walking better known as the pedestrianism started in the 1800s. Aristocrats about that time had a footmen whose job was to carry messages from one aristocrat to another. It was only a matter of time until the aristcrats started to make wagers on whose /footman/ was faster. Thus, the birth of sports betting as we know it. Competitive walking grew into a real sport event and reached its peak in 1870s and 1880s when spectators which showed up in superbowl like masses to see typical walk competitively. They have even filled up to the origianl Madison Square Garden. Sometimes races would last up to 6 days and the atmosphere was almost festival like. Brass bands played, venders sold pickled eggs, maybe some /roasted chestnuts/. Yum. The competitive drew everyone from celebraties to politions even regular /folk/. Champagne of all things was the drink of choice for walkers. They thought it was a stimulant. As one would, they drank it by the bottle. And guess what, it kinka worked. One guy walked 136 miles in just 34 hours. Bottoms up.
+
+romcom 浪漫爱情电影
+indicative 表明 
+wagers 赌注
+chestnuts 板栗
+picled 腌的
+pickle泡菜
+champagne 香槟
+
+177.
+PDT says no American president has been as tough on Russia as he has. T spoke to reporters and cabinet members on Wednesday, 2 days after he summit with Vladimir Putin. The 12 boys and their soccer coach who had been rescued from a cave in Thailand left the hospital and held a news conference on Wednesday. One of the boys says he wants to a navy seal. The 29 year old /gun rights/ activist suspected of being /covert Russian agent in court on Wednesday. Court paper say Maria Butina was likely in contact with Kremlin operatives while living US and also accused her of using sex and deception of forge influential connections. In the rare 7 week-old white lion cub is on display in animal sanctuary in Texas. Luna made her debut last week and is one of the only five hundred white lions left in the world.
+
+cabinet 储藏间 内阁
+deception 骗术
+
+178.
+When the Rock won the championship of wwe in 2013, he wanted a custom belt. This video is about the guy who made that belt. This is Dave Millican, the industry leader in championship belt making. He is also a huge wrestling fan. Yeah, that sounds about right. He's been in the industry for a while since he was a little kid. I was 13 when I made my first belt and it was really bad. The guy who made belt before David was this guy. Reggie Parks taking me under his wing, had everything to do with my development even my initial respect in this business from the veteran. Everybody met Reggie Parks, nobody /knew David M/. And here is how they are made. Step one, artwork. Step two, etching. Step three will be the bolt work. Step four, plating. And then from /there/ you pretty much have a complete belt although some have paint some don't have paint. It varies from /design to design /. And each belt is unique in its own/ way. I am actually been asked how many belts I have made by now we're in the /thousands/. Believe it or not,  WWE isn't his biggest /client/ right now. Somebody that orders just as many belts is Lip Sync battle TV. But we are here for wrestling nostalgia. Countless stars ranging from stone cold/ to John Cena himself have worn Dave's belts. It's certainly a labor of love and some of these belts can take up a year to finish which /begs/ question, which one is his favorite? Asking my favorite belt is like asking me to pick favorite kid. That will be a lot of kids to have to choose from.
+
+wrestling 摔角
+bolt 螺栓，插销
+nostalgia 怀旧
+
+179.
+PDT says he wants another meeting with Vladimir Putin to start implementing some of the ideas that discussed in the Helsinki summit. T is pushing back against criticism of his performance at Monday summit using his tweet to accuse the media of trying to provoke a confrontation with Moscow that could lead to war. FBI director Christopher Wray said Wednesday that Russia continues to use fake news，propaganda and covert operation to spin up American on both sides of hot button issues to sow discord in the US. Wray stood behind the intellengence agencies assessment that Moscow meddled in the 2016 presidential election, dismissing Russian president Vladimir Putin's claimed that his country was not invloved. The Senate has approved a resolution refusing any WH plan to allow Russia to question former US diplomats delievering the first former rebuke from congress of PDT's actions at the Helsinki summit. Senate majority leader Mitch McConnell arranged the vote after democrats proposed the measure in responce to what T had called an incredible offer from RP VP. London zoo says a premutured panguin baby has been nursed back to health after her parents accidentally step on her egg and broke it.
+
+propaganda宣传，鼓吹
+covert 秘密的
+spin up 旋转
+sow discord 引起纷争
+
+180.
+Maybe call it the sex in the  city footwear effect. High heels are stylish and in some circles considered as the fashion requirement. But they come with risks. Emergency room visits due to high heel shoe injuries double between 2002 and 2012. That's according to a study in the journal of foot and ankle surgery. Researchers estimate that during the period of study. American sustained more than a 123,000 high heel related ER worthy injuries. Almost 3 quarters of the demages was to the feet and ankles but wearers also hurt keens, shoulders and heads. Most of the injuries were minor. The research adds to a body of knowledge on the adverse affect /of/ heels. It's known them walking in them can reduce ankle muscle movements, stride length and balance. Long term, heel can alter the neural mechanics of walking and can lead to musculoskeletal disorders. But they look good and more than half of the American women and some men wear heels regularly. Most of the footwear foibles tracked in the study were suffered by women between ages 20 and 29. And perhaps surprisingly, the majority of the injuries did not happen while people were out on the town. They occur at home. So before you .don. your newest pair of price pumps, wedges or /stilettos/. Remember, being careful can save your soul and your ankle too.
+
+ER worthy injury 需要急救的伤
+on the town 出去嗨
+pump 泵，轻舞鞋
+wedge 楔形，高跟鞋
+stiletto 女式高跟鞋
+
+181.
+Michael Cohen, PDT's former personal attorney /recorded/ T in the fall of 2016 discussing paying and ex-playboy model who says she had affair with T. C wasn't immediately available to comment but current T attorney /Rudy Giuliani/ has confirmed the existance of such reporting. Authority say it could take several days to raise a /duck boat/ that sank during a severe storm in /Branson/ Missouri. 17 people died in the /tragedy late Thursday their ages range from /1 to 70/. Forcasters say at least 5 tornados touch down in central Iowa, injuring at least 17 people, but national weather service is trying to determine how strong the tweeters were, if the count is correct. Take a look at the cub of this /semi/ as it dangles from a bridge in Florida's Manatee county. The accident tied up traffic on I75. Fortunately a drivers fine.
+
+attorney 律师
+duck boat鸭子船
+tragedy 悲剧
+
+
+182.
+Located in the Altenburg Austria is a /Benedictine abbey/ with an unusually beautiful crypt. The Abbey is /filled with well-known/ areas such as the striking marble room, the library, the chapel and medieval /monastery/. However the one area that stands out is the abbey's crypt. Crypts are often dark subterranean homes of the dead but this crypt is bright and its walls /are/ adorned with beautiful art. The detail /frescos/ are painted by Austrian artist /Paul Troger/ in 18th century. At a distance, the imagess appear cheery however death is in the details. One of the features a skeleton holding an arrow aimed at cherubs, two already slain in his feet. Intricates images in Roman gods in skeleton form are also painted with massive murals. Altenburg abbey was build in 1144 but has been in the site of numerous invasions throughout history. IN 1645, a Swedish attack rendered it in need of severe pair. But despite these trials, the abbey has remained active and its unique experience for all that come to see it.
+
+Benedictine 圣本尼迪克特 五世纪意大利名僧
+abbey 修道院
+crypt 教堂地下室
+chapel 小教堂
+monastery 寺院，修道院
+subterranean 地下的
+fresco 泥壁画
+cherubs 小天使
+slain 杀害
+
+183.
+PDT claims that his former personal lawyer's taping of their private phone conversations is totally unheard of and perhaps illegal. T is responding to the revelation that attorney Michael Cohen made a screte recording of their discussion about a potential payment for a former playboy model's account of having an affair with T. T tweets that the good news is that your favorite president did nothing wrong. PDT's choice for the supreme court has given members of congress lots of material that help them to judge the judge. Judge /Brett Kananaugh/ responded to a senate /Judiciary Committee/ questionnaire that probes his /career/ as attorney and /jurist/ his /court/ writings, educations, /society/ memberships and much more. Gaza's militant Hamas rulers say that they have accepted a cease fire /ending/ an Israli onslaught on /military/ positions after a soldior was shot dead. The Hamas spokesman says except the cease fire brokered by Egyption and UN officials. A colorful parade of classic cars took place in Moscow on Saturday morning. The parade was in its fifth edition and as many as 133 crews driving classic /soviet era/ cars participated.
+murals壁画
+broker经纪人，代理人，协商
+revelation披露，揭示 
+onslaught猛攻
+
+184.
+In northern Lithuania, near the city of /Siauliai/. Hundreds and thousands of crosses sit on a hill. Now representing /both Lithuanian identity and Christian devotion. This site of /pilgrimage offers/ peace to those who visit. This is the Hill of crosses. The traditional of leaving crosses began in 1831 to commemorate those who had fallen in a rebellion against Russia. People still /leave/ crosses today.
+
+Lithuania 立陶宛
+pilgrimage 朝圣之旅
+
+185.
+An Afghan official says 14 people have been killed in the suicide bomb attack near /Kabul's/ airport. The attack happened shortly after the congress controversial first vice president /landed on his/ return from abroad. Authority say that a police officer in Seattle who was trying to stop /a fleeting/ suspect was struck killed by another officer. The officer driving the car was critically injured in a collision. A gunman who got a shootout with police and took dozens of people hostage in the LA supermarket has been arrested. Authority said Sunday /one woman/ was shot and killed in the standoff. Space launched a Falcon 9 rocket carrying a Telstar 19 Vantage communications satellite, the rocket took off from /Cape Canaveral/ airforce station in Florida.
+take someone hostage 绑架某人作为人质 
+standoff 僵局
+vantage 优势
+satellite 卫星
+
+186.
+You are on the trail and going downhill and you are just like wow look at that tree, wow look at that bird wow look at that animal. Everytime you come is different. You never get bored of nature. My name is Jose Pablo Jelkmann Mendia and I am an outdoor adventure guide. EI Sur is a natural reserve in the south part of /Volcan de Agua/. It is a beautiful vocano that opens to the Pacific coast. Overall /the park/ is 225 acres and there is /a little/ more than 25 miles of trails. They grew that start in /EI Sur wanted/ to conserve the land but they needed a way to make it sustainable and that's when the idea of having recreation activities came into the plan. My favorite activity to do here is moutaining biking. It's a pristine /rainforest with huge old growth trees. The animals in the park are protected and that's what makes them fell free and comfortable being around people. You can see the culture difference between a protected area and the one that is not. Outside the property, the land is being used for agriculture so what that means is that there is gonna be a lot of deforestation. Having places in the country where you can go and actually enjoy and preserve nature. It's beautiful and I feel grateful that these places actually exist.
+
+pristine 崭新的，原始的，未开发的
+deforestation 毁林
+
+187.
+PDT is considering to revoke the security clearances of some of critics including the former /CIA/ director John Brannon. Last week John Brannon described PT's /press/ conference with Russian P Vladimir Putin as nothing short of truthness. Drivers raised the duckboat that capsized and sank in Missourri lake killed 17 people. On Monday, 3 days after the accident, the boat could be seen emerging from the water. The boat went down after a thunderstorm swept across the lake. In Athens, a smoke from a nearby forest fire /hangs/ above the acropolis. The fire is raging northeast of Athens and at least 6 people have been injured. The NY Daily news is slashing half its /staff/ including its paper's editor in chief. The newspaper /tabloid/ has been the key fixture in NYC, has won /11/ Pulitzer prices.
+
+nothing short of = almost 表示肯定
+capsize 翻船
+slash 猛砍 slash staff 裁员
+acropolis 古希腊卫城
+editor in chief 主编
+tabloid 小报，摘要
+
+188.
+The first time that I lay down the guitar track and then I played the fiddle on top of this, it makes me like /goose bump on/ my arms cause like this is something /shamanic/. My name is Nature Ganganbaigal, I am a musician, originally from China but I have a Mongolian ancestry. So this our Mongalia /fiddle/, we call them // or in English we can say a horsehead fiddle. Throat singing is a very ancient and traditional way of singing. You press your throat and you generate one sound but then you generate a overtune on the top of it within your mouth. It sounds like two songs at the same time. /With the next song I will ask you first one question/ Who ride a horse before? If you read the Mongolian history, it is all about those brave worrior conquer all around the world and they don't fear death. that kinda spirit. Metal people, heavy metal people it's also like very metally, you don't give a shit you just do whatever you want like this free spirit, definitely free spirit in it. People will say oh why you are doing Mongolia music, they don't understand the whole ancetry /thing/ they understand your culture identity but on the other day I love the Mongolia culture and that's all what it matters.
+
+goose bump 鸡皮疙瘩
+fiddle 调整，摆弄；提琴
+
+189.
+The family of a Florida man shot in a handicapped parking dispute is outraged that the shooter has not been charged. A white man fatally shot a black father last Thursday upon pushed to the ground outside a convenient store. The /Pinellas county sheriff said the case fell under Florida's /controversial / stand your ground law which allows people to  use force without retreating if they feel threatened. Police in LA said a store worker killed a gun battle before a suspect took hostages of a crowded supermarket was hit by a police officer's bullet, the employee /Melyda Corda/ was leaving a store on Saturday as the suspect was entering after firing at officers /persuing/ him.
+Workers removed shells of burnt cars from the road after wildfire /ravaged/ through the seaside resorts near Greece's capital. The fire has killed at least 74 people, torching cars, homes and forests. 
+Ivanka T is shutting down her clothing company citing WH ethics restrictions and a waves of store droping the brand. She is a senior advisor to her father PDT and has been recently encouraging US to hire American workers. Her company has been accused in the past of using foreign workers to make products abroad.
+
+ravage 蹂躏，破坏
+resorts 度假村，胜地
+
+190.
+How do you get to /Carnegie Hall/ ? Practice, for sure. You might also want to switch on your alpha synuclein gene and throw in a dual specificity phosphatase too. Because a new study find the these and other genes are actived with professional musicians strut their stuff. The findings are on the journal Nature Scientific report. Mastering a tremendous /instrument/ is not easily feat, it requires timing, coordination and motional interpretation and the ability to integrate information that come in through the ears, the eyes and the fingers. But what gives rise to the musical ability biologically /speaking/? To find out, researchers took blood samples from ten professional musicians before and after they played a selection of pieces by /Stravinsky Haydn/ Mozart and Bach and they identified all of the genes that were turned on during the performance. That is, those genes that actually got transcribed into RNA that could be used to make proteins. What they saw is the boost of genes involved in neural growth and flexibility, which could count for the musicians brain being good at forging new connections. Genes involved in /motor/ control are also /revved up/ and were those the light up the brains pleasure center. Perhaps not surprisingly, versions of about a third of these musically important genes are known also activated in song birds, another creature who is livelihoods depends on using music talent to /wow an audience.
+
+feat 功绩，成绩
+coordination 协调配合
+strut 支撑
+
+191.
+WH said on Wednesday that PDT proposed Washington meeting with Russian President Vladimir Putin had been delayed into 2019 citing the ongoing probe of Russia interference in the 2016 election. On Capitol Hill the secretary of state took tough question from senators of both parties about T meeting with Putin in Helsinki and NK denuclearization after the summit in Singapore. PT says the US and EU have agreed to work towards 0 tariffs and 0 subsidies on non automobile goods. Following the meeting with the president of the E commission, T says EU also agreed to buy a lot of soybeans and increase its imports of liquefied natural gas from the US. Drone footage recorded above a section of Greece near Athens shows the demage after the deadlies wildfire to hit Greece in decades, killing 79 people and sending thousands flee. Scientists says they have detected water beneath the surface of mars raising the possibility of life on the planet. The reservoir which is at least 12 miles across was found by radar signals. Experts called the discovery thrilling.
+
+liquefy = liquify
+
+192.
+The defense minister in Greece has said that its government is not to blamed for the wildfire near Athens which led more than 80 people dead. /Panos Kammenos/ said the disaster has been worsen by residents who'd built porperties illegally and block the escape routes. Weather records are being broken around the /globe/, Japan has just recorded a new record for the country over 41 Celsius temperatures in the arctic circle the water reached 30 celsius. Supporters of former /cricket star Khan have been celebrating as he appears to be /inching/ towards the victory in Pakistan's general election. His opponent allege that there's been major vote rigging and other manipulation claims which his party denies. Thousands of people have forced to flee their homes in northern Cambodia after the collapse of the dam in neighbouring Laos on Monday.
+
+cricket 板球
+inch 动词，向某个方向谨慎移动
+allege 声称
+rig 装配，操纵
+
+193.
+PDT says his trade deal with European allies will benefit the farmers who had been hurt by the fallout of recent tarrifs. While speaking around a round table at the Iowa, T says his meeting with EU will open up new markets for American agriculture. Health speaker Paul Ryan said he doesn't support an effort by a /small group of/ conservative to impeach deputy/ attorney general Rod Rosentein. He says the actions of Rosenstein will oversee the T Russian investigation aren't enough to warrant impeachment under the constitution. A suspected /arson/ wildfire has forced thousands to evacuate mountain communities east of LA. The fire was the largest at least 5 that police believed were purposely /set/ Wednesday when a man's car was reportedly /spotted at the starting point on top of the blaze. A video for a dad in New Jersey celebrate his son's release from the hospital after being diagnosed with Leukemia / has gone viral. Kennith Thomas danced to Ciara's level up while his son clapped and dance alone. The singer reposted the video which has now tens of thousands of views.
+
+fallout 争执，僵局
+impeach 对某人提出重罪指控，怀疑
+arson 纵火
+leukemia 白血病
+
+194.
+Rising out of the Tuscan Hill are some colorful and unusual figures inspired by Tarot cards. The Tarot Park is located in Tuscany, a few hours outside of Rome. The park took 20 years to complete and include 22 figures from the tarot deck. There is /Sphynx that leads to a golden skeleton riding a blue horse over a green sea. This represents death. The handed man can be found inside one of the sparkling grottos suspended from the ceiling. And one of the most bizarre figures is the oracle which is a hollowed eyed figure, surrounded and covered by snakes. The eccentric artisit to create this garden was Niki de Saint Phalle. In the early 1950s, Niki was committed to a asylum and believes/ it was art that eventually /healed her/. She wanted to creat a place that would have the same healing effect on those who visited. The park opened in 1998 just 4 years before Niki's death. In her own words, she dreamt of building a garden, that would be dialog between sculpture and nature, a place to dream in.
+
+Tarot card 塔罗牌
+sparkling 闪烁的闪耀的
+grottos 洞穴
+asylum 避难，精神病院
+
+195.
+Cotton candy who knew sugar and air could taste so sweet? Well a guy named James Morrison an amateur inventer whose occupation and taste buds didn't exactly a align. He was a dentist and during his lifetime, James even became the president of Tennessee Dentle association. Don't forget to floss. But he can also a confectionary in enthusiast with the passion for /culinary/ advancement. He paired with John C Wharton, an old friend and fellow confectioner together the two design the /co patented/ what they calle the electronic candy machine. The device rapidly spun in melted sugar through small hole until it is fluffy with 70% air. They called the new treat Fairy floss. They introducd their product at the 1904 world's fair/, selling them in wooden boxes with 25 cents each, that's about 6 dollars today. Fairy floss was a huge success. In 6 months, they sold over 68,000 boxes, /grossing in todays/ money around 440,000 $. But despite the sugar spun business, Morrison returned to his day job as a dentist. So the next time the dentist tells you you are eating too much sugary treats, well blame him. Awkward.
+
+confectionary糖果点心
+culinary 烹饪的，厨房的
+
+196.
+A common response to see ants inside your house is to stomp on it. But if you crash a member of ants specis /Tapinoma sessile/, you might catch a whiff of a strange smell. A smell that reminds some people of blue cheese, rancid butter, or rotten  cooknut. In fact the smell is so noticeable that the insects' common name is the odorous house ant and many people call it coconut ant. In an effort to figure out why people have these reactions, researchers /established/ visitors called North Carolina bug fest. 143 volunteers smells smooshed ants and were asked to identify the scent from 4 choices. Blue cheese, Rancid butter, rotten coconut and other. /Although websites overwhelmingly called the smell of rotten coconut almost 40 percent of the human judges picked blue cheese and about 25% picked rotten coconut more than 30 percent went with the choice of other. The scientists then analyse the chamicals responsible for the ant odor as well as the smelly chamicals of blue cheese, fresh coconut and coconut buried underground for three days. It turns out that the chemistry of the ant scent is indeed the similar to the blue cheese and rotton coconut but not fresh coconut. And the researcher note that the pencillium microbes that turn coconut oil rancid are also involved in the production of blue cheese. The study is in the journal of American Entomologist.The researchers also know the the most common write in candidate as a description for the ant aroma was cleaning spray as one little girl told them the ants 'smell exactly like her doctor."
+stomp=stump 跺脚
+sessile 固定的，固着的
+whiff 一点气味
+smoosh=crush 压扁
+pencillium 盘尼西林，青霉素
+microbe 微生物
+rancid 变味
+entomologist 昆虫学家
+aroma 香味
+
+197.
+Fragrant pine trees, snowy streets, spacious /log cabins/, it's the /quintessential/ mountain town. Welcome to Jackson hole, China. Yeah, that's right, China. The town has 1,500 homes. Most residents use this place for weekends getaway from the husling /and bustle/ in BJ. But there's another reason they come here, a sharred passion for the American west. My name is Sun Shuyan. I am from BJ, China. He's lived here for 7 years, and fully embrace the lifestyle of the town. I like American films, especially west films, yes, /John Wayne/. There is not ski resort in Jackson home in China but they do have a church and look /straight/ little house on the /Prairie/, a Disney store and a whole lot of American style /suburban sprawl/. Maybe American people come here and think wow it's a wild place. It's a slice of Americana and only 2 hours northwest from BJ.
+
+fragrant 芳香的 flagrant 骇人听闻的，恶名昭彰的
+quintessential 典范的
+resort 旅游胜地
+suburban sprawl 郊区的延伸
+
+198.
+3 people have been killed and 7 others injured after 2 gunmen fired into a crowd in a /busy strip / mall in New Orleans. The police /are/ asking people who witnessed the attack to come forward with the information about the gunmen. Death toll from a strong earthquake that struck a popular tourist island in Indonisia has risen to 14 with more than 160 injured. The quake has demaged more than 1000 homes and was felt in nearby /Bali/. An explosive wildfire in Northern CA has displaced about 50 thousands people and burned near 300 homes. 5 people have been killed in what is now the largest fire burning in CA. RP VP praised the Russian's naval officers on navy day /parade/ in St. Petersburg. Russia is commemorating the navy day with the praise in several cities, the largest in St. Petersburg.
+
+strip mall 商场
+
+199.
+Loacated in the northern part of Vietem, are four hunderd islands and stunning isolated beaches of /Lan Ha Bay/. Well geographically it is part of the /Halong/ bay, a popular tourist site. /Lan Ha/ bay is in a different province making it more difficult to access and allowing it to retain the secluded charm. The area is rich in biodiversity and is /home to/ 200 specis of fish, 500 specis of mollusk and larger marine animals. Nestled amongst the 400 islands is a small fishing village. The village is only accessible by boat and it is a 2 hour ride from its nearest mainland Cat Ba island. Each house of the float village has /ponds/ where they /farm/ fish. But /ponds/ are the only thing found in the /front of yards of these locals. Goats are placed on the island nearby to /graze/ and build muscle they are sold by the villagers. Although it is Vietnam's less visted bay, /Lan Ha/ bay's stunning view will /leave a last impression.
+mollusk=mollusc 软体动物
+nestled 筑巢，安居
+amongst = among
+
+200.
+PDT said that he will certainly meet with the Iranian president Hassan Rouhani if Iranian leader is willing, adding he will do it with no precondidtions. T spoke it during a join news conference with Italy's leader in Washington. The Minnesota prosecuters said he won't charge 2 police officers of fatal shooting of a blackman last month. The prosecuters said the man fled from officers with the hand of loaded handgun and refused to follow commands. Body camera video shows the 31 year old Thurman Blevins  shot by officers from behind after a foot Chase. Protesters interrupted a news conference where the charging decision was announced. Polls has closed in Zimbabwe's historic election, the first since the fall of longtime leader Robert Mugabe. Turnout was high and the day was free of violence than marked previous elections. Final results are expected within 5 days. A giant panda gave birth to a pair of twins in southwest China Sichuang province last week. 16 year old Caocao gave birth to a male cub followed by a female cub four hours later. C has given birth to a total of 9 cups including 3 pairs of twins. 
+turnout投票人数，到场人数
+
+201.
+Located in the town of Patan in India, is a 90foot deep stepwell with even deeper connection to the past. Built inside in the openning ground, approximately 200 feet long and 65 feet wide. The step well is designed as 7 level inverted temple. Throughout history, most monuments are being constructed by men with intention of honoring their wifes. However, /Rani Ki/ Vav is different as it was initially built as a memorial to the king in the 11 century AD by his wife. Hence it became /known/ as the queen's step well. In the past stepwells were common throughout India, these wells are primarily used to collect water. However they became the place of socializing and an important aspect of the community to people of that time. It features more than 500 priciple sculptures and at least 1000 smaller sculptures, all in religious or mythelogical imagery. As the trand's peak, there were roughly 3000 stepwells in India however today there are only around 1000 remain. Rani Ki Vav serves as a valuable visual history to teach and remind of visitors about the traditions of the past.
+monmuments 纪念碑
+
+
+202.
+Hello there. Oh, watch the road, watch the road. I just want to tell you a little fun fact, did you know that the guy who invented /cruise/ control couldn't drive, he had good excuse. He was blind.
+This is Ralph Teetor, he was an amazing guy. He lost his sight when he was a kid but he didn't slow down. He /excelled/ in school, and became a respected mechanical engineer. He had a talent of visualizing objects in his mind. It led to an amazing inventions such as early power /lawnmower/ and new version of the fishing pole. But his /crowning/ acheivement is /cruise control. The story goes like this. During WWII, the speed limit was set on 35 to save on gas and tires. Teetor's lawyer was driving him around and /kept/ having to brake to stay at 35 and that constant slowing down and speeding up /uncertain/ make our interpid inventor feel a little carsick. His blindness made him particularly sensitive to the motion. An inspiration struck, Ralph came up with an idea that we control the speed of the car without the driver having to touch the pedals. Thus the speedostat was born. Obviously that named by catch /on/. In 1958, the first car to use /R's invention/ came out. At first it was 86$ luxury features but over the years, /cruise/ control, as it came to be known, has became a stand part of the most cars. So the next time you are cruising down the road, remember Ralph Teetor, the genius, the engineer, the visionary.
+cruise 平稳行驶，航行
+crowning 登峰造极的，加冕
+pole 杆子，极 fishing pole 鱼竿
+lawn 草坪
+mower收割机
+interpid 勇敢的
+
+203.
+/Tucked away/ in Budapest, /Vajdahunyad/ castle is medieval in look, but not in age. Built in 1896 this architectural complex was designed to celebrate the first millennium of the Hungarian state. The buildings were supposed to be temporary so they were made of wooden plans and cardboard designs. But Hungarians loved them so much that they were rebuilt with permanent materials in the 1900s. The celebratory/ site features copies of the landmarks from all over the larger 19 century Hungary Kindom combinning architechtural details of 21 buildings. Like the Romanensque church of /Jak/, originally located in the western Hungary or Corvin Castle castle, located in what is now Romania and more commonly noted to fans of /Dracula/ myth. It was believed that the Impaler was once imprisoned /here/. The name of the Romania castle ended up being adopted by Budapestian for the whole compound. Several palaces in Austria are represented as well, featuring a blend of Renaissance and Baroque architecture, demonstrating the diversity of styles that spread accross the Austria Hungarian empire. And just like the castle that is built to imitate, /Vajdahunyad/ is built to be defented. It is accessible only by four bridges, streching across the surrounding lake. For over a century the castle has continued to be enjoyed by Budapestians and tourists alike who come to relish and truely Hungarian artifact.
+tuck away 隐藏
+millennium 一千年
+Dracula 吸血鬼
+Impaler 刺客
+relish 喜欢，享受
+
+204.
+The WH said PDT's criticisms "the speical councel of Russian's probe is not obstruction". Trump on Wednesday tweeted that attorney general Jeff Sessions should stop this rigged witch hunt right now. Press secretary Sarah Huckabee Sanders said the tweet is not order, it is president's opinion. Prosecuter in Paul Manafort's trial said they expect to rest their case against former T campaign /chairman/ next week. Assistant us attorney Uzo /Ason/ said the prosecution is run ahead of schedule as the trial on tax evasion bank fraud charges entered its in second day on Wednesday. 
+Zimbabuwe's president is /blaming opposition/ supporters for the violence in capital began in protest over Monday's election results and ended up with /the military sweeping in with gunfire, at least 3 people are dead. President Emmerson M in statement carried by state medium says: the opposition is responsible for the chaos meant to disrupt the electoral process.
+/Blue/ diamonds like the /Smithsonian's famous hope/ diamond are the rarest vowel. How they formed more than billion years ago is a bit of mistery. Now scientists say they have a glimmer of an answer. They've long known that the blue tint comes from the traces of /boron / in diamond but the element is mostly found near the earth surface not deep down where diamond is typically created.
+
+rigged 作弊的 rig装机，装配
+boron 硼
+
+205.
+The world is changing. Technology is absolutely vital to fast forward these changes. I am Sam Bird and I am driving an electric racing car. Formula E is a single /seater racing/ championship, but purely for electric vehicles. /Formula E/ is going to be the catalyst for people beliving that electrical vehicles are /cool,/ fun and they are the future. There're no place in the world that you can push these technologies/ so hard that you can do /in motor sports/. /Formula E/ is really /in the here and now. /Electric/ cars they are /computers and wheels/. Not only we have to develop the hardware of the car, for sure the motor and the inverter but also we have an awful lot of software to be developing. There are probably hunderds different /topics/ that we can work on to improve the overall efficiency of our electric racing cars. That's why our partnership with /Hewlett Packard Enterprise is so important. /Hewlett Packard enterprise have desighed a really bespoke IT solution and be able to condense /the amount of time it takes/ to go from the car to the engineers. We have reduced the time from about 2 min to 10 secs. That might sound marginal that shaving 2 mins of /non productive/ time absolutely critical. Racing is important not only for a sporting perspective but for a life perspective. I firmly believe Formula E serious will make more people on the planet go green because technology from here will go to the production line and make a better affordable electric car. /It is about the speed of how our team operates and how quickly we are able to apdopt new technologies and integrate them into our race cars. THat's why /Formula E/ is so important. This is the catalyst of change.
+
+in the here and now 就在此刻
+bespoke 定制的，定做的
+
+206.
+/It's/ official Applein is world's first one trillion dollar publicly /traded company. Apple stock jumped over 2 percent on news of strong quarterly earnings and high iphone prices. Pope Francis has changed Catholic church's teaching on the death penalty, saying it can never be sanctioned. The Pope said the death panalty attacks the inherent dignity of all humans.  And at Chester Zoo in England, a rare black rhino calf has been born. Black rhinos are critically endangered with less than 650 left in the wild.
+
+207.
+This small 3 acre island is home to one of /the most/ cherished sea temples in Bali. /Tanah Lot/ translate to land in the sea in the Balinese language which perfectly describe the /rock/ formation and the temple that sits atop of it. It can be found in the southwest coast of Bali and it is one of 7 ocean temples, each of which is built with eye line of the next. /Tanah Lot/ was built around 16th century to honor the sea's spirits. It is believed that it is protected by the sea /serpents/. The rob base that the temple sits on has been reconstructed over time as the original rock has began crumbling to the ocean. Visitors are able to access the island via foot during low tide. However non Balinese people are not permitted to enter the temple. This is the most visited and photographed temple in Bali and it is especially busy in sunrise and sunset. Although if you intend to visit don't bring a date. It is believed that there is a curse on unmarried couple to visit the temple. Their relationship is /doomed/. But this dispute might just /worth/ the risk.
+serpent 大毒蛇，阴险的人
+crumbling 崩溃，弄碎，灭亡
+doom 注定，毁灭，命运
+
+208.
+A 12 year old Chinese tourist who had at the center of an Amber Alert Thursday/ when she was reported abducted from Washington's /Reagan National/ airport has been found safe in NY. Police say Jinjing Ma was located in Queens /in the custody/ of her parents. The FBI has taken over the investigation.
+Huston Police say the man /accused / of killing one of the former president George HW Bush's doctors killed himself Friday when confronted by authorities. The 62 year old Joseph /James Pappas/ died from a self-inflicted shot from head during a confrontation with police. 
+Paul Manafort's long time accountant testified Friday, that Nanafort told tax prepares on multiple occasions that he didn't control any foreign bank accounts. The testimony /wrapped/ up the prosecution's first week into the former Trump campaign /chairman's/ trial on tax evations and bank fraud charges. 
+And Nasa unveiled /9/ astronauts who will ride /the first/ commercial /Boeing/ and space X capsules into orbit next year bring human launchers back to the US. The astronauts will be the first to launch from US soil since the space /shuttle/ program was retired on 2011.
+AMBER Alert 儿童绑架紧急情况
+custody 羁押，保管，保护，抚养权
+inflict 痛苦，打击
+wrap up 包裹起来，得出结论，总结，完成
+Boeing 波音公司
+
+209.
+One of the newest additions to the skyline of Hamburg, Germany is a concert hall fit for modern Mozart. The /Elbphilharmonie/ is considered one of the world most /largest/ and most acoustically advanced concert venues in the world. Made up of 3 concert halls, the Elbphilharmonie seats more than 2800 vistors. The great concert hall, the largest of the three halls has 10000 unique acustic panels that were designed by using computer algorithms to create the best possible sound. Each penal contains one million cells that shape the sound by either absorbing the waves or having them reverberate through space. The curved design of the cell can be seen replicated thoughout the entire building. Not to be outdone, the glass exterior of the Elbphilharmonie built atop a former warehouse is just as spectacular as the interior. The structure rises above the /Elbe/ River and mirrors the water wave and shine. To mark the opening night, the exterior featured a light show, timed to the music being played within the great hall. With multiple events almost everyday, the Elbphilharmonie is a must see for music and math lovers alike. 
+acoustic 声音的
+outdone 胜过
+warehouse 仓库，货站
+
+210.
+Roller coast nuclear diplomacy between the US and North K has hit highs and/ lows. At a conference in Singapore Saturday, US secretary of state Mike Pompeo accused North and others violating the US sanctions against Pyongyang. North K foreign minister /greeted/ the Pompeo then delievered a /scathing/ attack on the T administration. A right wing group and self described anti-facist counter protesters /rallied in Portland /Oregon/ Saturday as police trying to /prevent the gathering from / turning violent /as they have before/. The rally organized by patriot Prayer leader Joey Gibson was the third /to roil Portland/ this summer. 
+A Russian Helicopter crashed shortly after the take off in Sybiria killing all 18 people aboard. The /iterstate/ aviation committee which overseas civil aviation in much of the former Soviet Union says the MI8 helicopter collided Saturday with the load of being carried by another helicopter that also had taken off from the /same pad in /Vankor/. 
+PDT is turning his /wrath/ on basketball superstar Lebron James. T tweeted late Friday that J was interviewed by the dumbest man TV. CNN anchor /Don Lemon, but that he made Lebron smart which wasn't easy to do.
+
+hit highs and lows 高低起伏
+scathing 严厉批评，无情指责
+rally 集合，召集
+roil 搅乱，使动荡
+aviation 航空
+wrath 怒火，愤怒
+
+211.
+Adidas and Puma are 2 of biggest rivals in shoes. But did you know that their founders were 2 halves of once happy family business that turned into a level of brother rage so intense it will get the sneakers heads' tongues a wagging/. See what I did there?
+In the 1930's the Dassler brother sports shoe company in Bavaria made the most kick ass of atheletic shoes in all the /land/. The company even gave a pair of shoes to Jesse O to compete the 36th Olympics. When Jessie won, the brother shoes blew up. But all that success was not good for their relationship . Tensions flared. Some say they were stealing, affairs, resentment. And after WWII, the brothers were so out of step that they eventually ended the company. in 1949, Adolf or Adi Dassler formed Adidas a play on his /nickname/. Rodolf Dassler started Puma because that name is awsome. The brothers sued each other many many times over the years over all sorts of design of trademark issues costing each other a fortune and lawyers and suits. Their 2 factories built in the same /Bavarian/ village /Herzogenaurach/, polarizing the community with local people picking size by picking shoes. The brothers died 2 years apart. They were buried at the opposite ends at the village graveyard. Proof that even in death, there remained a great bitter divide between them. And so it was for decades until 2009. Employees of Adidas and Puma in the village where the 2 companies still had their headquarters came together and played a friendly soccor match and started the process of healing decades of enmity and began a new era of love and shoes.
+enmity 敌意
+
+
+212.
+What might seem like just a cluster of small temples surrounding the Myanmar's /Kuthodaw pagoda/, is actually the world's largest book. The /Kuthodaw pagoda/ is a golden temple built in 1857 but it was what lays around the surrounding /shrines/ that draws people /near/. /In each of the 730 white stupas, stands a marble tablet, combined these tablets make up the entirety of the Buddha's teachings written in the ancient Pali language. Each tablets or page from the book, stands by 5 feet tall and five inches thick. The tablets for once covered in precious /jewels/ and golden ink. However after the British invasion in the 1880s, the site was /looted/ and the golden ink and gem/ was stolen. Today the book is /still/ accessible. The dense written has since been filled with black ink so the scripture can be read for many years to come.
+
+shrines 圣地，神社
+stupas 舍利塔
+loot 掠夺
+scripture 圣典
+
+213.
+At the top of the track right before a race, I tell myself there's nothing I can't do. People have died of doing this and I know that. But going at 90miles/hour is so damn /fun/. My name is John Daly, and I am a 2 time Olympic skeleton slider. The skeleton track is roughly one mile long and I slide up to 90 miles per hour, my face only one inch off the ice. You got a green light and you take off sprinting and you can't hear a thing. When I make contact with the sled it feels like a place I have been my whole life. Last year I made the same jump on that sled. You could feel immense pressure as you are pulling 5 Gs, so my 8 pound head now weights more that 40 pounds. If you start to get stiff, you start to get scared. It's not gonna work the sled gonna would break loose /on you/ and you're gonna crash. You have to enbrace the speed instead of getting afraid of it. At the bottom of the skeleton race when I have had a really good run, I feel like I can run through the wall. You are so pumped up and that's why I love it.
+
+sprint 冲刺
+sled 滑板
+
+214.
+3 months after the / Iran/ nuclear deal, PDT signed a excutive order reimposing sanctions on Iran. T says the policy is in the putting "Maximum economic pressure on the country." European foreign ministers condemn the move saying they deeply regret their reimposition of their sanctions. Thousands left homeless by a powerful earthquake on the Indonesian tourist island of Lombok are sheltering in makeshift /tents/. Authority said the rescuer haven't yet reached all devastated areas and they expecte death toll at 98 people to rise. Authority are still looking for a gray or silver car involved in a fatal shooting on the San Fransisco in Oakland Bay brige. A man was killed and 2 others were injured on Monday when someone open fire on their SUV shutting down all traffic /lanes/ for hours. And gorillas in /Prague's/ zoo may be hoping the European heatwave never ends. Zookeepers have been giving the zoo's 8 gorilla's sorbet almost daily to help them stay cool.
+imposition 征收，征税
+makeshift 权宜之计，临时的，凑合的
+traffic lanes 车道
+sorbet 雪糕
+
+
+215.
+What do you think happens when 2 black holes meet?
+When 2 supermassive black holes get near each other, their gravity draws them closer and closer. Gravity also pulls in a doughut shaped disc of gas from the surrounding galaxy. This gas heats up and radiates jets of lights we can see from across the universe. These jets are the most luminuous objects in the sky. As the black holes circle in towards each other, their magnetic fields show in white becoming intertwined. Eventually when the 2 supermassive objects get close enough, they suddenly plunge towards each other and fuse into one large black hole. The merger releases not just a torrent of light, but also gravitational waves that spiral outwards and /warp/ the entire fabric of space and time. Scientists hope one day /soon/ to capture one of these waves which might review secrets about the nature of gravity and foundamental workings of the universe.
+interwined 交错，缠在一起
+warp 弯曲，扭曲，变形
+
+216.
+Nothing says Britain more than, no, no, no, keep going, oh, yes, a nice cup of tea. We know we have China to thank for introducing tea to the western world, but how did it make its way to England and become the culture obsession it is today? Well, that all thanks to one Portugese woman. The year 1662, the person, Catherine of Braganza. She just won a hand that England's kings Charles the second with the help of the very large dowry including money, treasures and spicies. This worthwhile trade make her the queen of England, Scottland and Irland. When she arrived in her new homeland, she brought with her packets of loose leaf tea, /in crates labeled/ the label transporte de ervas aromaticas. It's a theory that these words was later abbreviated to tea. Now it could be found in England but was only /really used for medicinal purposes. Catherine continue drinking tea to her heart's content and as the new royal, everthing about her including her /beverage habbit was/ copied by other ladies, desperate to be just like their idol. Another thing Catherine brought to the table from Portugal was the idea of tea drinking experience. She popularized the use of porcelain teacups and mugs but the end of the 17th century, much of British /aristocracy/ were enjoying the hot beverage and soon enough, so was everyone else. Today, well tea can be found pretty much everywhere, it remains a special daily pastime for the /Brits/. So carry on and drink tea, people of England.
+mug 杯子
+culture obsession  文化狂热
+dowry 嫁妆，彩礼
+pastime 消遣
+
+217.
+Nothing in Portugal stands out quite like the viberant colors and unusual architecture of Pena Palace. Pana National Palace is located within the western Portugal Sintra Mountains. Although the palace's vary design choices maked it appears as though it had been built from multiple pieces of different castles. The building's unusual style is the result of an owner which extremely flamboyant tastes. The palace was owned by King Ferdinand II, who built it to serve as a summer home for the Portugese royals in the late 18th century. The castle itself is built around /an old/ monastery and it is made up of colored sections including a red clock tower and yellow /minaret/. During the revolution in 1910, the royals fled and the palace and its ground was abandoned. It wasn't until the 20th century that it was restored by the state and earn itself a / UNESCO heritage site / designation. King Ferdinand's wide ranging tastes had made Pena palace a microcosm for all the styles of architecture the world has to offer.
+
+UNESCO United Nations Educational Scientific and Cultural Organization 联合国教科文组织
+flamboyant 卖弄的，炫耀的
+monastery 修道院，寺院
+minaret 尖塔，清真寺
+microcosm 缩影
+
+218.
+Inside this 250 ton 3 headed elephant is a museum, commissioned as a place to preserve Thai heritage. The Erawan museum is located just outside the Bangkok. It is named and inspired by the mythological king of elephants in /Hindu mythology/. Inside there is a large temple in the belly of elephant and downstairs is a museum which /features/ carvings inspired by buddhism, chrisitanity and Hinduism. Outside a walk around the landscape /parks/ feature modern elephants that trumpet as guests walk under them. With thousands of visitors every year, the museum serves as a tribute of Thailand's /past/.
+
+trumpet 喇叭，小号
+commission 委托，服役
+tribute 贡品，致敬，颂词，致哀
+
+219.
+For a few weeks between the wet and dry seasons, this seemingly looking ordinary river bursts to life with color. Cano /Ctistales/ is located in Meta, Columbia. When the conditions are just right, an endemic aquatic plant species that /lives in/ the riverbed blooms, creating a brillant show of red color, often with /hints with/ yellow, orange, green and blue. Because of this, locals refer to the river as the liquid rainbow or the river five colors. Before 2009, the Cano /Cristales/ was closed off to the public due to /guerirlla/ activity and surrounding region. Today, the river can be reached by horseback or by foot and it is accessible under the guidance of the local tour guides. Although this phenomeno only happened for short period of time each year, this living rainbow lives a lasting impression.
+
+guerirlla 游击队
+endemic 地方性的
+aquatic 水生的
+
+220.
+Vice PMP announced plans on Thursday for new /seperate US space force as a sixth military service by 2020 ensuring American's dominance in space amid heightened comptition and threats from China and Russia. A severely disabled 3 year old boy who authority say was kidnapped by his father and marked for an /exorcism,/ is dead. According to his father /Siraj Wahhaj/, a muslim cleric in NY, the search for the boy let /authorities/ to the desert in New Mexico where the child's body of 11 hungry children were found. Proscecutors say the /toddler/'s father has been training the children to carry out school shootings. First lady Melenia Trump's parents have been sworn in US citizens. Viktor and /Amalija Knavs / took the citizenship oath in NYC. The Slovenian couple have been living in the US as permenant residents. Sumsung unveil its newest smart phone, the galaxy note 9. The device has a longer battery life, greater memory and a bluetooth stylus. It sells for a thousand dollars.
+
+
+221.
+Should flood hit? Japan is ready. And the solution is the largest underground water facility in the world. About an hour outside Tokyo is the metropolitan area outer underground discharge channel. This tunnel sits 160 feet underground and is around 4 miles in length. Inside it is a network of large /verticle/ shafts that store flood waters. The giant tunnels were built because this area Japan is constantly flooding. Now in stead of /inundating/ by towns, the water flow underground and divert to a river. They can handle the influx water making sure more than 9 million residents stay dry.
+
+metropolitan 大城市的，大都会的
+inundating 淹没
+
+
+222.
+Israeli's military says its forces has struck a Hamas positions in Gaza after /Palestinians rallying/ at the Gaza border threw a /grenade/ and explosive devices at troop stations there. The /violence/ came as Gaza's militant Islamic Hamas rulers and Israel has been honoring a cease fire. An aide to republican consultant /Roger Stone/ is helding contempt after defying the /subpoena/ to appear before the grand jury investigating Russian invlovement in 2016 election and context with T campaign. His lawyer says he's /trying to/ set the stage for /challenge/ to Robert Muller's appointment as special counsel. 2 police officers are among the four people killed in the outburst in a gunfire in /Fredericton/ Canada. /Violence/ that strikes a nerve that has been /roiled/ in recent months by repeated deadly attacks. /Baby rhino/ Malindi born last week at the UK chester zoo is strutting his stuff in public. M spent over an hour running and playing Wednesday before taking a nap. The eastern black rhino is listed as critically endangered on the international union for conservation of nature's red list and experts /believe/ only some 650 remained in the wild.
+rally 召集
+grenade  手榴弹
+aide 助手
+contempt 蔑视 found/held in contempt 藐视法庭，不遵从法庭权威
+subpoena /supi:na/ 传票
+jury 陪审团
+council 议会
+counsel 律师，法律顾问
+strike a nerve 牵动神经
+strut 支撑
+
+223.
+The universe is a cold dark place, but it has a strange region that is even colder than usual. Seen from the earth, it is an area where the ambiant cosmic microwave background light the left over thermal energy of the big bang is much chillier than expected. Now the astronomers said they have found in the same part of space a so called supervoid, a large area mostly empty of galaxies. And they think the overlap is no coinsidence. The supervoid extends one point 8 billion light year across, making it perhaps the largest structure known in the /cosmos/. According to our report in the monthly notices of royal of astronomical society. The supervoid relative lack of stuff could have drained the energy from the light from past through it, explaining why the microwaves background is colder there. Here is how it works. General relativity theory tells us the gravity bends spacetime causing light to travel a curve path of massive objects as if falling into a bowl. The supervoid then with its lack of mass is akin to a hill. When light travels up to that hill, it loses energy. Normally it would regain energy upon exiting the void. That is when it comes down the other side of the hill. But because the expansion of the space is accelerating, the hill light tumbles down is less steep than it was when the light climbed up and the flutter ride down means less energy recovered than was expanded going up which translates to a low energy region. A big chill in the remnant to the big bang.
+
+tumble 摔倒
+cosmic 宇宙的
+cosmos （有序体系下的）宇宙
+
+
+224.
+This mosque's distincs red and white patterns and /tall minaret/ can be seen from every part of the S town. Jami Ul-Alfar known locally as the red mosque is located in Colombo Srilanka. /It was/ commissioned /in 1908/ by Indian Muslims who travel for business and needed a place of worship while in Srilanka. THe desired and the builder was /H.L. Saibu Labbe/ and the original structure only one year and was complete in 1909. He was influenced by Indo-Saracenic architechture which is a hybrid of Indian and Islamic styles. The best example of this is the mosque's pomegrante-shaped domes/. The mosques started samll, only 500 to a thousand people gathered but it has since grown and expanded to be 6 floors to accomodate 10000 worshipers. Apart from being a major tourist destination for vistors/ is also the main place of worship for Srilakan Muslisms.
+mosque 清真寺
+minaret 尖塔
+commission 受委任的
+pomergranate 石榴
+
+225.
+My name is Michael Lombardi and I am a diving safety officer at the American museum of natural history. The suit is made of a hard aluminum and it is cast alumi alloy so you are essentially inside a pressure vessel, you are inside a submarine that space is not compressible so that's really the key with removing pressure. If you were in a compressible space so for instance,/if you are just in a wetsuit. The /human body/ is exposed to pressure and it's cause for a /whole host of/ physiology problems. So we eliminate the problems with physiology, we open up a whole new demension for exploration. All the life support is self contained on the suit itself. You are essentially using a oxigen rebreather there inside the cabin so you are reclying the cabin gas by carbon dioxides is removed chamically and oxigen is replenished to match your metabolic rate well while at work or at rest. If we were to wet dive to be these same depths, it would require a very complex use of mixed gas, so typically, nitrogen oxigen and helium to dive very deep. I have had a lot of experience doing that and you end up against a wall very quickly in terms of how much time you have and depths to do these things and so in the exosuit you are at surface pressure. You reclying the cabin gas supply and you breathing the same atmosphere as you are here. And you have you know 50 hour supply of. So we have a tool that can crossbridge any number of industries and solve problems that we have never been able to solve before. 
+That's me in the flippers Michael Moyer , editor for space and physics and scientifican American. To understand why I am diving over the side of the boat in search of my meal, you've got to step back in time.
+
+flipper 鸭脚板
+wetsuit 潜水衣
+a whole host of  很多的
+
+226.
+In China's Huanglong valey you can find 2. 2 miles of naturally formed hot springs, just follow the yellow calcified trail. These colorful ponds have formed over a thousand years by geologic change, causing the /limestone to mold/ and crystal clear water to overflow into the series of pools below. On either side of the natural wonder are rugged mountains and forests. From a distance, the cream yellow rock of the hot springs leaves through the forest standing out as a steamy oasis. The color and shape /result in the locals calling the pools the yellow dragon. Huanglong valley is home to the Huanglong monastery and one of its remaining temples can be found on top of the pools /terraces/. For many years, the area is under of the threat of industrilization but through local efforts and being a /UNESCO site/, the yellow dragon will be seen its natural beauty for generations to come.
+trail 小径，跟踪
+limestone 石灰岩
+oasis 绿洲
+terrace 梯田，平台
+
+227.
+Where can you see the Eiffel tower, Mont Saint Michel and the /arc/ De /Triomphe/, all within a few steps of each other. France of course, well, miniature France. Located 2 hours outside of Paris, miniature /France/ is a theme park, made in the image of real France but at 1/30 of the original size. The park is 12 acres in size and features 117 different monuments. Miniature park is built by a team of 50 model makers and landscape architects, ensuring each model is an exact replica of its larger counterpart. To make this hybrid city come to life, there are animated trains, cars and planes that /move aroudn the region. And you might not have time to see all the real France has to offer in one day, you can make arround of this park in one afternoon although your photos might not be to scale.
+be to scale 按比例
+
+228.
+Pink towers and giant dragons, sounds like a scene from a fairy tale. But in this case, it's not. In the /Samphran/ district sits one of Thailand's most talent unique temples. Wat Samphran is a pink shrine dedicated to the /Buddhist/ faith and measures 260 feet or 80 meters high representing the age of buhhda when he died. Well the temple is known for the giant encircling dragon. Its meaning remains a mistery. /Bhavana Buddho,/ the founder of the temple was inspired to create the hollow dragon building during 17 day fasting meditation. COnstruction took only 5 years. Vistors can climb the stairs of 17th story temple to touch the dragon's beard or they can climb inside the belly of the beast. This temple is a must for some people to discover something truely one of a kind.
+
+one of a kind 特别的=unique
+
+229.
+A top clergyman faulted in a Pennsylvannian grand jury report over his handling of sexually abusive priests is asking /parishioners/ not to lose confidence of church. Cardinal Donald /Wuerl/, one of the highest profile Catholic /cardinals/ in the United states spoke with day during mass at Cathedral of St. Matthew the /apostle/ in Washington D.c. on the religious feast of the assumption of Mary. He saied Catholics need to help victims and he ask for Mary /intervention/ for those whose confidence is shaken because of the terrible play of the abuse. PDT is revoking the security clearance of former Obama administration CIA director John Brennan. Brennan is deeply critical of Trump 's conduct, calling his behavior and press conference with RP VP "nothing sure of /Treasonous/". Federal proscecutors trying former Trump campaign chairman Paul Manafort say his diffensive attorney violates several of judges' orders in their closing arguments in his financial fraud trial. US district judge TS Ellis III said he is likely to address those violations in his restructions to the jury.
+parishioner教区居民 parish 教区
+cardinal 主教
+apostle 使徒
+Treasonous 叛国的，叛逆的
+revoke 撤回
+security clearance 安全调查
+little/nothing short of = almost/equal to 等于
+
+230.
+What was once /a thick wall/ built to protect one of Hungary's grandest castles has been transformed into a lookout with the most beautiful and /panoramic views/ of Budapest. The Fishermen's Bastion is 500 foot long lookout located on the bank of the Danube river and is one of the most visited sites in all of  Budapest. The site is only around 100 years old and was built in celebration for the 1000th birthday of Hungarian state. The neo-Romanesque medieval style architecture reflects the first era of the first Hungarian king ruled in the year one thousand. The bastion's most distinguishing features are the 7 turrets representing the seven Hungarian tribes who founded the present day of country in the year 895. THe name fishermen's /Bastion/ honors the guild of fishermen who protected the castle from being distroyed during middle ages from enemies. Being attention with construction was to create a landmark which showcase Budapest's gorgeous views. The success is evident as fishermen's /bastion's/ archways, windows and wide communial stairways provide a view unlike any other in all of Budapest.
+
+staircase = stairway 楼梯
+lookout 瞭望处
+panoramic 全景的 panorama 全景 panacea 万能药
+bastion 要塞，堡垒
+turret 角楼
+guild 协会
+archway 拱门
+
+231.
+This is no Forth of July, this is the national pyrotechnic festival in Tultepec Mexico. Each year the city throws the /Pamplonada Pirotecnia or national pyrotechnic festival for 9 days in March to celebrate the feast of John of God, the patron saint firework makers. Local families, buisinesses and firework factories build a enormous bull shaped floats out of paper /mache/ called Torritos, the construction of which can take months. The exterior of these floats are completely covered with decorations and fireworks. THis is all in preparation for the festival's most popular event: the buring of the bulls. The bulls are paraded through the town and brought into the square in front of crowds chanting /fuego or/ fire. A courageous soul is then sent in to light up each float/. As the bulls are pulled through the fearless crowd, the fireworks illuminated the town and the party rages on into the night.a
+4th of July 美国国庆节
+pyrotechnic 烟火的，烟火制造技术的
+
+232.
+/Aretha/ Franklin, the /Queen of soul/ has died. An artist like no other, Franklin was the voice of generation, a true American icon. She won 18 grammy's and the first women inducted into Rock and Roll Hall of Fame. Franklin died of /pancreatic/ cancer in Detroit. She was 76. 
+American's newsrooms are pushing back at PDT /demonizing/ of news media as the enemy of the people. An estimate of 350 newspapers coordinate the series of editorials speaking up for the /necessity/ of free press. Stock surged on Wall street as China and US prepared to hold their trade discussion in months. A potential signed of progress toward ending the trade war between the two powers and finally /we leave you/ with a little bit of /Aretha/ Franklin's less public performance.
+
+like no other = special 特别的，独一无二的
+pancreatic 胰腺的 pancreas 胰腺
+
+233.
+Once a hub of Franch's aristocratic parties, this castle in the countryside lies abadoned after falling victims to a house fire. A few hours outside Paris are the remains of the chateau de la Mothe-Chandeniers. The castle was built in the 14th century and was owned by French nobles. It was /conquered/ twice by the British in the middle ages and was devastated during the French revolution. Around 60 years later after wealthy relatives of the /Napoleon/ III took control, he restored the castle to its former glory. However, in 1932, just after central /heating/ was installed, a violent fire broke out. Since the fire, the castle has benn slowly taken over by nature. Trees have grown through the inteiror and vines crawl the once sturdy castle walls. Though its fate is still uncertain, today there are efforts to save the castle with a group raising money to restore the ruins.
+
+hub 集线器，核心，枢纽
+fall victims to a house fire 成为... 的受害者 
+chateau 法国的城堡
+
+244.
+The first /funerals/ of /vimtims of Genoa bridge collapse were held on Friday afternoon in Napels. Official say 38 people are confirmed killed and 15 were injured and many are still unaccounted/ for/, so the death toll is expected to rise. More than 1.4 million Muslim followers have gathered at the city of Mecca, ahead of the annual /Hajj Pilgrimage/. On Friday, many circled the cube-shaped Kaaba, known as Islamic holiest site, the /pilgrimage/ represents the one of the 5 /pillars/ of Islam and is required of all able-bodied muslims once in their life.
+PDT said he expects to quickly revoke the security clearance of Justice department offical Bruce Ohr whose wife works for the Trump's /dossier/ firm. T also defended his decision to strip former CIA director John Brannon of his security clearance. In Detroit, mourners gathered at new /Bethel Baptist/ church where /Aretha/ Franklin's father was once a pastor to remember the legendary singer leaving flowers, balloons and stuffed animals. Franklin once sang at the church, /headlining varies charity functions, she died Thursday in Detroid from Pancreatic cancer.
+pilgramage 朝圣
+able-bodied 身体健全的
+revoke取消，撤销
+security clearance 安全检查
+dossier 档案
+pastor 牧师
+
+255.
+Made entirely of wood without a single nail, the sanctury truth in Pattaya/ Thailand is a modern day marval  built in ancient carving techniques. This religious shrine has been under construction since 1981 and it isn't scheduled to be completed anytime soon. It was commissioned by a Thailand millionare whose spent his fortune on projects like this. He wanted /to keep/ ancient techniques and buildings alive. The building towers 375 feet and looks out over the coast. Its four wings are dedicated to Thai, Cobodian, Chinese and Indian iconography. A team of 250 wood carvers have created /ornate/ images of religious and philosophical significance throughout constructure. The sanctuary of truth is considered an art installation religious shrine and cultural monument all in one. Although the creator has passed away and won't have oppotunity to see his celestial masterpiece completed, the work continuous according to his specific plans.
+marvel 奇迹
+shrine 神社，圣地，圣殿
+tower v.像塔一样
+celestial 神仙，天上的，天空的
