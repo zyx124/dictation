@@ -1868,3 +1868,29 @@ marvel 奇迹
 shrine 神社，圣地，圣殿
 tower v.像塔一样
 celestial 神仙，天上的，天空的
+
+256.
+Kofi Annan, one the world's most celebrated diplomats and charismatic symbol of united nations who rose through its ranks to become the first black African secretary general has died. He was 80. Thousands of /stranded/ people were waiting to be rescued Saturday and officials /pleaded/ for more help has relentless /monsoon/ floods /battered/ the southern Indian state of /Kerela/ where more than 190 have died in a little over a week and much of the state is partially submerged. /Italy's/ president has demanded garrentees that all the nation's roads are safe following the Genoa highway bridge collapse after the state funeral in the grieving port city. The toll from bridge's collapse has rose Saturday to 43 with the death of injured man the discovery of 4 more bodies amid broken concrete from the Morandi bridge. A new video game presents a dark vision of post Brexit Britain. A /far/ right government has seized control and people with European heritage are treated as second class citizens. Makers /of the satirical title believe Brexit will have an adverse effect effecteved Brexit will have a adverse effect on the UK's video games industry.
+charismatic 有魅力的
+strand 股，海滩
+stranded 搁浅的
+plead 恳求
+relentless 无尽的，无情的
+monsoon 雨季
+batter 猛击的，连续击打的
+satirical 讽刺的
+
+257.
+The Mezquita has always been a spiritual place but it is not always occupied by the same religion. Nowhere else in the world will you find a cathedral built inside of walls of a mosque. Originally of the site to the temple Roman god Janus, the /Mezquita/ was built as a mosque after Cordoba came under /MOorish/ in the late 7th century. Then in 1236 the city of /Cordoba/ came under Christian rule and /Mezquita/ was converted to a church. 4 centuries later, a cathedral was constructed in the centre and it became a home for the town's Roman catholics. Well the cathedral of next example of classic catholic broque architecture, the majority of // construction is the result of the work of Islamic architects. Features like 856 columns and symmetrical arches give you illusion of infinite space. These elements are examples of why // is considered one of the greatest accomplishments in /Islamic/ architecture in the world. Today it is just a UNESCO world heritage site over a million people visit every year and after all its history, it is now seen as a site of religious significance to both catholics and muslisms.
+no where else in the world will you ...
+Moorish 摩尔式的
+
+258.
+The closest star from our solar system is about 4.3 light years away from earth. But how do we know that distance? It seems like measuring a star distance should be impossible. It is not like we stretch out a cosmic tape from here to /aldebaran/, a giant red star that's over 400 trillion miles away. Fortunately we have triangles. Try this, shift to the left then to the right. Everything in front of you appears to be back and forth. But objects that are far away move less than the stuff nearby. This effect is called parallax and we can use it to measure large distances. As our planet goes around the sun, the shift seems to go back and forth relative to more distance stars. The farther away the star is, the less it moves. The shift is incredibly tiny. The closest star to our sun moves no more than a width of a soccor ball seen from 40 miles away. By looking at a star in January and then again in July we can draw a triangle. The base is the diameter of the earth's orbit. The opposite angle is how far the star appears to shift. Dig some high school trigonometry and you can calculate the triangle's height which in this case is the distance to the star. knowing these distances, let's measure other things like the brightness of stars and the size of the galaxies. It's so essential in 2013, the European space agency launched a telescope called Gaia to measure parallex with more precision that we've every seen. Above the turbulence above the earth's atmosphere, G has been plotting a distances to over a billion stars, creating the map of the milky way and some of its galactic neighbors. All that from the lowly triangle.
+
+cosmic 宇宙的
+parallax 视差
+galactic 星际的
+
+ 
+
