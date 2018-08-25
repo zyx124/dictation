@@ -12,4 +12,18 @@ berate 痛斥
 261.
 The theory of general relativity is what made Albert Einstein famous. To get the basics, we brought Einstein to the beach.
 It turns out that the gravity is not quite what we thought it was. Instead of a force pulling two objects together, gravity, according to relativity, results from the shape of space and time. E figured out that space and time are just different dimensions of one entity. Spacetime is kinda like this hammock. We live in the dimensions of 3 in space and one of time. In the absence of mass, space is flat and objects travelling through it, moving a straight line. But E showed that when you add mass including planet, people and even coconut, it warps the fabric of spacetime. Spacetime bends around mass and becomes curve and objects travelling through and no longer follow a straight line. Now it has to travel in a curve. This curve path brings it closer to the large mass making it seems the objects that are drawing together. This is the effect we know as gravity and it is the core of general relativity.
-hammock 吊床 
+hammock 吊床
+
+262.
+PDT's personal attorney Michael Cohen has pleaded guilty to federal charges including campaign finance fraud, band fraud and tax evasion. Cohen entered the plea in federal court in NY on Tuesday.Former T campaign /chair/ Paul Manafort has been found guilty on 8 counts on financial fraud. The judge cleared a mistrial on 10 other counts after juror's /fail to reach a/ verdict. Prosecutors have until Aug 29 to decide whether they will retry the other 10 counts. No sentencing date has been set. The father of a Colorado women who police say was killed by her husband /sobbed/ with /his face/ in his hand as the judge of former charges. Chris M was charged with first degree murder for killing his wife and 2 daughters. If convicted, Wat could face death penalty. In /Ardansas/, a 3 three year old boy and his one year old brother survived alone about 2 days after they were passengers in the single car /wreck/ that killed their mother in /south Arkansas/. The investigators believe the // happens 2 days earlier and that older boy was able to climb out of the /wreckage/, the younger boy was taken out to children's hospital to be treated for dehydration but its condition isn't life threatening.
+attorney 律师，代理人
+plead guilty 认罪
+retry 重新审理
+sob with his face in his hands 掩面哭泣
+wreck 毁坏，沉船
+
+263.
+Tornadoes occur in every continent except Antarctica but more forms in central US than anywhere else in the zone called tornado alley. That is because the conditions in the alley are ideal for creating tornadoes. Warm humid air, low to the ground moves north from /gulf/ of Mexico in collides with cool dry air high above the ground rolling in from the Rocky mountains. The collision of air masses creates a supercell, a massive thunderstorm that has a strong rotating updraft of air. Scientists aren't exactly sure what happens next but the leading idea goes like this. The difference in speed between the faster high winds and slower low winds causes the air to rotate the horizontal axis. If one end of the rolling air gets caught on the /updraft is bent upward and forms a /funnel/ cloud. Its spin gets tighter and faster and the cloud gets longer. Rain or /hail/ from the thunder storm can then push down on the tail of the funnel cloud until it reach the ground forming a tornado. Top wind speed of most tornados is usually under 110 miles an hour and most touch the ground in less in 10 minutes. However, extreme tornados are truely extreme. The longest tornado path was cut by the tristate tornado on /Mar 18th/, 1925. It tore up property in 219 miles and it was on the ground for /well over/ 3 hours and killed 747 people. Which is why I'll be hanging out in here in Antarica with the penguins until tornado season is over. 
+alley 小巷
+funnel 漏斗的
+
