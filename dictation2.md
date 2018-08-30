@@ -12,4 +12,6 @@ berate 痛斥
 261.
 The theory of general relativity is what made Albert Einstein famous. To get the basics, we brought Einstein to the beach.
 It turns out that the gravity is not quite what we thought it was. Instead of a force pulling two objects together, gravity, according to relativity, results from the shape of space and time. E figured out that space and time are just different dimensions of one entity. Spacetime is kinda like this hammock. We live in the dimensions of 3 in space and one of time. In the absence of mass, space is flat and objects travelling through it, moving a straight line. But E showed that when you add mass including planet, people and even coconut, it warps the fabric of spacetime. Spacetime bends around mass and becomes curve and objects travelling through and no longer follow a straight line. Now it has to travel in a curve. This curve path brings it closer to the large mass making it seems the objects that are drawing together. This is the effect we know as gravity and it is the core of general relativity.
-hammock 吊床 
+hammock 吊床
+
+
