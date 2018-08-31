@@ -14,6 +14,7 @@ The theory of general relativity is what made Albert Einstein famous. To get the
 It turns out that the gravity is not quite what we thought it was. Instead of a force pulling two objects together, gravity, according to relativity, results from the shape of space and time. E figured out that space and time are just different dimensions of one entity. Spacetime is kinda like this hammock. We live in the dimensions of 3 in space and one of time. In the absence of mass, space is flat and objects travelling through it, moving a straight line. But E showed that when you add mass including planet, people and even coconut, it warps the fabric of spacetime. Spacetime bends around mass and becomes curve and objects travelling through and no longer follow a straight line. Now it has to travel in a curve. This curve path brings it closer to the large mass making it seems the objects that are drawing together. This is the effect we know as gravity and it is the core of general relativity.
 hammock 吊床
 
+<<<<<<< HEAD
 262.
 PDT's personal attorney Michael Cohen has pleaded guilty to federal charges including campaign finance fraud, band fraud and tax evasion. Cohen entered the plea in federal court in NY on Tuesday.Former T campaign /chair/ Paul Manafort has been found guilty on 8 counts on financial fraud. The judge cleared a mistrial on 10 other counts after juror's /fail to reach a/ verdict. Prosecutors have until Aug 29 to decide whether they will retry the other 10 counts. No sentencing date has been set. The father of a Colorado women who police say was killed by her husband /sobbed/ with /his face/ in his hand as the judge of former charges. Chris M was charged with first degree murder for killing his wife and 2 daughters. If convicted, Wat could face death penalty. In /Ardansas/, a 3 three year old boy and his one year old brother survived alone about 2 days after they were passengers in the single car /wreck/ that killed their mother in /south Arkansas/. The investigators believe the // happens 2 days earlier and that older boy was able to climb out of the /wreckage/, the younger boy was taken out to children's hospital to be treated for dehydration but its condition isn't life threatening.
 attorney 律师，代理人
@@ -52,4 +53,6 @@ One interesting property of superconductor is that they can levitate magnet. The
 stay put 静止不动
 run like a top 平稳地运行
 
+=======
+>>>>>>> dc675cb0efaeef99c07ed89832c2f96ce50d7e01
 
