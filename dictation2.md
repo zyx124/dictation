@@ -36,3 +36,20 @@ You don't need a telescope to /taking the stars/ at our milky way galaxy, but pl
 exoplanet系外行星
 herky-jerky 颠簸的
 
+
+266.
+Toostie rolls seems simple enough. That piece of gooey chocolate wrapped up in perfect little bite. But believe it or not, these tasty treats saved lives of the US marines in the Korean war. In 1950, as the Korea Chosin reservoir, US marine troops were engaged in battle. But marine were running out of /ammunition/ and called for a air drop in 60 milimeter /mortar rounds/. Code name to these bullets, Tootsie Roll. When the supplies fell from the sky, troops were surprised to find the boxes filled actual candies. Where are the bullets? This /fluke/ turned out to be blessing in disguise. Freezing cole temperature have been cracked vehicle fuel lines /leaving/ troop /stranded/. And although the candies were frozen, they softened easily in the mouths of servicemen. Marine quickly realized that they could melt the candy to a putty and seal the broken pipes. Good as new. When the choclates refrozed, they were able to drive to newly functional vehicles. The marine successfully escaped the resouvior and admit that the /Tootsie ROlls had/ a big hand in their survival and they called themselves the chosin few. I have called that a pretty sweet victory.
+putty 腻子，填补剂
+gooey 软黏黏的
+ammunition 弹药
+mortar round 迫击炮弹
+fluke 侥幸，偶然
+in disguise伪装的
+stranded 搁浅的，被困的
+
+267.
+One interesting property of superconductor is that they can levitate magnet. The cube shown here is a magnet only 2.4 millimeters long on each side. And it is floating above a superconducting material cooled by liquid nitrogen. The magnets' magnetic field sets up an electrical current the superconductor. These currents block the magnetic field from penetrating the superconductor. This causes the field to /active/ visible cushion on which the magnet floats. The magnets does not drift away because of inpurities in the superconductor. These inpurities like the magnetic field passed through in some spots, locking the magnets in place. When you try to move the magnet, it stays put. But you can cause it to spin like a /top/. There is almost no friction, so in theory, it could spin forever. Read more about superconductors and their connection to unified theory of physics in the Jan 2013 issue of scientific American.
+stay put 静止不动
+run like a top 平稳地运行
+
+
