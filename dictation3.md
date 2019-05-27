@@ -846,3 +846,17 @@ stink 恶臭
 rips a silent and deadly fart 放闷臭屁
 
 You can **bask in the glory** of your own stench. 你可以**享受**你的臭味。
+
+
+355.
+
+The world has seemingly become utterly divided on this dress.  Okay, what colors do you see.  On the one hand, we have team black and blue,  on the other, team white and gold. On twitter, there are hundreds of responses for both white and gold and black and blue. For what it's worth, we both saw black and blue and thought it was a massive /prank/ first.  So how can it be possible for people see it so differently. It's phenomenon known as color constancy. See this square for example, the middle square of the top appears to be a shade of brown while the one on the side looks mcuh more orange. But in actuality, they are both in exactly same color. We promise that we have not cheated here or done any photography.
+
+ instead, our brain at the context sees a shadow and instantly thinks, oh shadows make objects appear darker. So the brain compensates and / interpretes the square  as lighter than it appears until the shadow is taken away. Back to the dress, we have a similar situation. Except here the context is very arbitrary. We are so close to the dress and we don't know its surroundings and the brain has to make assumptions. 
+
+People who picture the dress as white and gold has  brains which may be interpreting the dress in a blue lit room for example, as in it's near a window, with bright blue sky. It makes /perfect sense/ that the white dress would be tinted blue and the gold color wouldn't /really/ change. On the other hand, the /brains/ of people who have seen it as black and blue may be interpreting the dress in an artifitial setting like somewhere with yellow light.
+
+prank 恶作剧
+
+from a factual standpoint 从事实的角度讲
+
